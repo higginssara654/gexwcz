@@ -1,964 +1,279 @@
-TCL空调全国官方售后服务点热线号码:(4 0 0 -6 7 6-0 6 8 9)
-TCL空调的维修电话可能因地区和具体服务内容而有所不同，但通常，用户可以通过拨打TCL空调的全国统一官方客服热线(4 0 0 -6 7 6 -0 6 8 9)来获取维修服务。以下是一些可供参考的电话号码：
-TCL空调全国统一官方客服热线：(4 0 0-6 7 6 0 6 8 9)
-TCL空调另一客服热线：(4 0 0 -6 7 6- 0 6 8 9)
-这些电话号码通常提供24小时服务，用户可以随时拨打咨询或报修。在拨打电话时，建议用户准备好TCL空调的型号、故障描述以及详细的联系方式，以便客服人员能够更快地为用户提供帮助。
-此外，TCL空调在各地区也可能设有售后服务电话，用户可以根据自己所在的城市，查找并拨打相应的售后服务电话(4 0 0 -6 7 6 -0 6 8 9)。这些电话号码可能会因地区而异，并且可能会有所变动，因此建议用户在拨打前先进行确认。
-总的来说，如果您需要TCL空调的维修服务，可以直接拨打上述全国统一官方客服热线(4 0 0- 6 7 6-0 6 8 9)或所在地区的售后服务电话，以获取及时、专业的帮助。FGYYEVKIOOFJNJJ
-
-TCL空调24小时售后服务热线上线（（2026年07月17日最新公布）最新公告）
-TCL空调售后服务电话：(4 0 0 - 8 2 2 - 9 8 8 2)
-TCL空调售后24小时客服热线：(4 0 0 -6 7 6- 0 6 8 9)
-TCL空调公司主营TCL空调维修 →TCL空调；不通电，出现故障代码，屏幕不亮，漏电等故障。；发热异常，不通电，E1，E2自动跳闸等故障。 24小时人工客服(4 0 0- 6 7 6- 0 6 8 9)、线下专业全国网点及各地区 人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。所有团队均经过专业培训、持证上岗，所用配件均为原厂直供，TCL空调服务承诺?.
-北京市TCL空调售后服务电话：(4 0 0 -6 7 6 -0 6 8 9)（2026年07月17日官网公布），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/d5877f206c356a99af5ff16ae4ec7b2f66c82215
-。
-南京市TCL空调售后服务电话：(4 0 0 -6 7 6-0 6 8 9)（2026年07月17日统一升级），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/32e443a8679b29d2c404f4ea669b5f93305c19b8
-。
-秦皇岛市TCL空调售后服务电话：(4 0 0 -6 7 6-0 6 8 9)（2026年07月17日官网更新），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/a7ea712a12d92d9e79f9edb755b1d188e58fa2de
-。
-珠海市TCL空调售后服务电话：(4 0 0-6 7 6-0 6 8 9)（2026年07月17日全新上线），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/5a617d769ee8182dff98d7ea0674d8836c6c338e
-。
-安康市TCL空调售后服务电话：(4 0 0- 6 7 6 -0 6 8 9)（2026年07月17日最新升级），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/ba3828d1ddf0a94dacec0276a5717970a03a1ebc
-。
-安庆市TCL空调售后服务电话：(4 0 0- 6 7 6- 0 6 8 9)（2026年07月17日官网公布），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/36c14065d41108de92f971fac8bfc0571daaaa99
-。
-鞍山市TCL空调售后服务电话：(4 0 0 -6 7 6- 0 6 8 9)（2026年07月17日官网推出），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/63d53f1a72a32bbbdddd3ebe35a6f7bc74f76dca
-。
-安阳市TCL空调售后服务电话：(4 0 0 -6 7 6 0 6 8 9)（2026年07月17日全新推出），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/dcd248e72d3cb84811f6343e19acb0835c353db3
-。
-巴中市TCL空调售后服务电话：(4 0 0 - 8 2 2   9 8 8 2)（2026年07月17日正式推出），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/31820b3c3fe5646d88fe2cfba03a1308a7ef8ee7
-。
-百色市TCL空调售后服务电话：(4 0 0 - 8 2 2   9 8 8 2)（2026年07月17日官网推出），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/10f9b19fb9b1e8817cfc1c117dbcd7e21f36d75b
-。
-蚌埠市TCL空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月17日统一公布），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/f80df720b7a96560c1c1b8811b30d5b5020c6ae5
-。
-保定市TCL空调售后服务电话：(4 0 0- 6 7 6-0 6 8 9)（2026年07月17日官网升级），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/fc3374c2f67fa7893d33188f5c844144e8aa100f
-。
-宝鸡市TCL空调售后服务电话：(4 0 0-6 7 6-0 6 8 9)（2026年07月17日官网上线），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/b8894e97cab6010d146365553eee0be3347095a3
-。
-保山市TCL空调售后服务电话：(4 0 0 - 8 2 2 - 9 8 8 2)（2026年07月17日统一升级），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/8b91c0fadabeca4ba21a7fdb60bceb4b1db4031d
-。
-包头市TCL空调售后服务电话：(4 0 0-6 7 6-0 6 8 9)（2026年07月17日统一推出），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/ecd2244b3bd209de5c1b08e316cc9f00f10e9b8f
-。
-北海市TCL空调售后服务电话：(4 0 0 -6 7 6-0 6 8 9)（2026年07月17日全新推出），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/5129636693175ce81aa3e0481111e371f1b8df95
-。
-本溪市TCL空调售后服务电话：(4 0 0- 8 2 2  9 8 8 2)（2026年07月17日官网上线），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/c77fef44ce7c0a748d71920e1bd4f2c39f5dfc6e
-。
-滨州市TCL空调售后服务电话：(4 0 0 - 8 2 2   9 8 8 2)（2026年07月17日统一上线），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/bde2ec1512252651bf579e9e84b3c00b5739ef46
-。
-博罗市TCL空调售后服务电话：(4 0 0 -6 7 6- 0 6 8 9)（2026年07月17日最新上线），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/cc2ab7b20152f01ca69c8d1099165df19b0d2b61
-。
-沧州市TCL空调售后服务电话：(4 0 0- 6 7 6 -0 6 8 9)（2026年07月17日官网推出），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/67643d52dd044546059810f4864bf67fe7451c6f
-。
-长春市TCL空调售后服务电话：(4 0 0- 6 7 6-0 6 8 9)（2026年07月17日正式上线），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/5c6fdb22c6b521639116ffc437e6e33c7fbb16b2
-。
-常德市TCL空调售后服务电话：(4 0 0 -6 7 6-0 6 8 9)（2026年07月17日统一推出），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/03e53dd3be322c01567c04eafb24324773775c2e
-。
-长葛市TCL空调售后服务电话：(4 0 0- 6 7 6 -0 6 8 9)（2026年07月17日统一更新），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/a7b35ff44888f81dd8000664754c45907c957c7c
-。
-长沙市TCL空调售后服务电话：(4 0 0 -6 7 6 0 6 8 9)（2026年07月17日官网公布），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/15d4b5eed282d3395c990c89d0ccedd573738e0b
-。
-常熟市TCL空调售后服务电话：(4 0 0- 6 7 6-0 6 8 9)（2026年07月17日官网升级），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/71b33b9bd5b8658222bad4a7e6e1f05a88f3976f
-。
-长兴市TCL空调售后服务电话：(4 0 0 -6 7 6 -0 6 8 9)（2026年07月17日官网上线），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/745c936d6ddec610d315804398a26772c5a16d02
-。
-长治市TCL空调售后服务电话：(4 0 0- 6 7 6 -0 6 8 9)（2026年07月17日最新更新），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/6508137fc168d30be8530bc16b52329c9a32d49c
-。
-常州市TCL空调售后服务电话：(4 0 0 -6 7 6- 0 6 8 9)（2026年07月17日正式上线），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/0a4de11c7b6536cb8b75b8138945127fe3736d6c
-。
-巢湖市TCL空调售后服务电话：(4 0 0- 6 7 6 -0 6 8 9)（2026年07月17日正式上线），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/b503e7739dbb7adef262cd2fda1252fad3d78e20
-。
-朝阳市TCL空调售后服务电话：(4 0 0 -6 7 6 -0 6 8 9)（2026年07月17日官网升级），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/4296bf56ea2d32f1e7cd1e981370941c0fd0f495
-。
-潮州市TCL空调售后服务电话：(4 0 0 -6 7 6 0 6 8 9)（2026年07月17日正式升级），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/3d20e930c363ab9550a3dae67e39d426924dfd68
-。
-郴州市TCL空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月17日官网公布），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/a258722e7a3195c44f828b42bc973ccb59a5bf3c
-。
-承德市TCL空调售后服务电话：(4 0 0-6 7 6-0 6 8 9)（2026年07月17日最新公布），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/2a65660dfac80cf1fe5f908169f408d52d2bc16d
-。
-成都市TCL空调售后服务电话：(4 0 0 - 8 2 2 - 9 8 8 2)（2026年07月17日官网推出），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/af9ede67470f900bcef22a4e05cbc79df69e8a4e
-。
-池州市TCL空调售后服务电话：(4 0 0 - 8 2 2 - 9 8 8 2)（2026年07月17日最新上线），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/963fed87adefc1204063c12a532566cf4afba529
-。
-崇左市TCL空调售后服务电话：(4 0 0- 8 2 2  9 8 8 2)（2026年07月17日官网公布），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/fa96c6917a6c45ab34ea0122c0b1400460a3c59e
-。
-滁州市TCL空调售后服务电话：(4 0 0- 8 2 2  9 8 8 2)（2026年07月17日全新更新），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/8e21963b35b77f1f24c7c72f5d7a267b95208d88
-。
-慈溪市TCL空调售后服务电话：(4 0 0-6 7 6-0 6 8 9)（2026年07月17日全新公布），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/9e808ff654e5ba700071103b3a7786379b1d3d59
-。
-大丰市TCL空调售后服务电话：(4 0 0-6 7 6-0 6 8 9)（2026年07月17日统一更新），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/ebe4a5c00ec804fb84772de5bb85ea2c36049e27
-。
-大理市TCL空调售后服务电话：(4 0 0- 6 7 6-0 6 8 9)（2026年07月17日最新升级），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/9bddba2bfb9e8761bf44de35b410a5ef0dde051d
-。
-大连市TCL空调售后服务电话：(4 0 0- 8 2 2  9 8 8 2)（2026年07月17日全新更新），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/9a4ee60714ca7842b2945b0e5694f083188ef6ee
-。
-大庆市TCL空调售后服务电话：(4 0 0- 8 2 2  9 8 8 2)（2026年07月17日官网公布），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/5a145cb0bcc705e2e0a3a67e63041a6e4183f9eb
-。
-大同市TCL空调售后服务电话：(4 0 0 -6 7 6-0 6 8 9)（2026年07月17日最新上线），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/c2bc7c85c8f70a2443f649b16fafbd7c50752af3
-。
-达州市TCL空调售后服务电话：(4 0 0 -6 7 6-0 6 8 9)（2026年07月17日全新公布），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/d2ee41ef7960b61ca517a1c43cc2b3db27be1231
-。
-丹东市TCL空调售后服务电话：(4 0 0-6 7 6-0 6 8 9)（2026年07月17日全新升级），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/a7a292c8f01568b4cd2b8442ee2c01449ebae819
-。
-德清市TCL空调售后服务电话：(4 0 0- 6 7 6-0 6 8 9)（2026年07月17日最新公布），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/3ce1b08824d6f3511b5019647b94cd5d6c74e00b
-。
-德阳市TCL空调售后服务电话：(4 0 0 -6 7 6 -0 6 8 9)（2026年07月17日全新推出），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/16f5c28e6e07df176257fb485d9b1467b9032c8b
-。
-德州市TCL空调售后服务电话：(4 0 0- 8 2 2  9 8 8 2)（2026年07月17日官网升级），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/162a42a3fef644ede090b81337f31b1d337c557c
-。
-定州市TCL空调售后服务电话：(4 0 0- 8 2 2  9 8 8 2)（2026年07月17日官网推出），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/07910d0fa2f857d9e391f18b248b08ab8eac9cda
-。
-东海市TCL空调售后服务电话：(4 0 0- 6 7 6-0 6 8 9)（2026年07月17日官网上线），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/c827409297a429fdae4502d224e6d35eb6ffb8aa
-。
-东台市TCL空调售后服务电话：(4 0 0 -6 7 6- 0 6 8 9)（2026年07月17日最新公布），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/a436ae2b52931a10c94ddeedb35c6b16fe68c8e2
-。
-东营市TCL空调售后服务电话：(4 0 0 -6 7 6 -0 6 8 9)（2026年07月17日最新上线），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/9c0bfe5b781e33682b8d963c096c14f2195ea4dd
-。
-东莞市TCL空调售后服务电话：(4 0 0- 8 2 2  9 8 8 2)（2026年07月17日最新公布），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/09013591d1f8e98a1853b96892812352ff979fbf
-。
-鄂尔市TCL空调售后服务电话：(4 0 0- 8 2 2  9 8 8 2)（2026年07月17日全新推出），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/08299ae59a516a1477be55c14279755dec56b9d8
-。
-鄂州市TCL空调售后服务电话：(4 0 0 -6 7 6 0 6 8 9)（2026年07月17日正式更新），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/ecc87e249cbca1b8cb9cd54b9e5ca33642a7178b
-。
-恩施市TCL空调售后服务电话：(4 0 0 -6 7 6-0 6 8 9)（2026年07月17日最新推出），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/a75a80516beb6ae7557ff6f2b5c6fc7c96d6d6bd
-。
-防城港市TCL空调售后服务电话：(4 0 0 -6 7 6- 0 6 8 9)（2026年07月17日全新推出），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/0db8f9428c2e1576bbe39cac050891380d87115c
-。
-佛山市TCL空调售后服务电话：(4 0 0- 6 7 6-0 6 8 9)（2026年07月17日最新上线），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/85747bb3133c08bbd7c8570d15e77033a4bcd2e6
-。
-抚顺市TCL空调售后服务电话：(4 0 0-6 7 6-0 6 8 9)（2026年07月17日全新推出），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/6194ffb46642bd1676c48db7601e9e07c469ebc4
-。
-阜新市TCL空调售后服务电话：(4 0 0 -6 7 6 -0 6 8 9)（2026年07月17日正式上线），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/ef668974da11b648a91fd92eea14fc5cdb21325b
-。
-阜阳市TCL空调售后服务电话：(4 0 0 - 8 2 2 - 9 8 8 2)（2026年07月17日全新推出），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/39e8cb9975c8ba44091e2fd8eadfac7f96ef48fc
-。
-抚州市TCL空调售后服务电话：(4 0 0-6 7 6-0 6 8 9)（2026年07月17日统一公布），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/550d61139e1dc2a69df25568b69f32dc61c79430
-。
-福州市TCL空调售后服务电话：(4 0 0- 6 7 6 -0 6 8 9)（2026年07月17日全新上线），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/a5d789ae37342430927695b14d2ae5f9a963d4b5
-。
-赣州市TCL空调售后服务电话：(4 0 0 -6 7 6 -0 6 8 9)（2026年07月17日全新更新），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/d855e95ebbc32247e959de1fae5f6fdaaf7b50f8
-。
-馆陶市TCL空调售后服务电话：(4 0 0 -6 7 6- 0 6 8 9)（2026年07月17日全新推出），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/ecc6c2ae8dfbb6ed6b97f5259134c5b6e5d06a84
-。
-广安市TCL空调售后服务电话：(4 0 0 -6 7 6 0 6 8 9)（2026年07月17日全新升级），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/6758f1230364af00bc0680ae4a26809f964e9c97
-。
-广元市TCL空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月17日统一更新），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/97c7064f408a8b7926c047b726308303bc813318
-。
-广州市TCL空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月17日正式推出），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/a58f72691590c6e967aae5e4c545f13a327187e0
-。
-贵港市TCL空调售后服务电话：(4 0 0 -6 7 6- 0 6 8 9)（2026年07月17日统一升级），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/eb39b9119a605c467ea13e2d44c277cd61bcf834
-。
-桂林市TCL空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月17日全新推出），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/33d0a212113c7ee9a2548900268472badf38c364
-。
-贵阳市TCL空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月17日统一上线），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/61b5007cb3392055ca99f9fb5d0ca595de122788
-。
-哈尔滨市TCL空调售后服务电话：(4 0 0- 6 7 6-0 6 8 9)（2026年07月17日统一公布），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/8b558ed4db6b86712eb6741d37d75406b92846a4
-。
-海安市TCL空调售后服务电话：(4 0 0-6 7 6 0 6 8 9)（2026年07月17日正式升级），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/94622328a9e8634660699ed4e82afcec42c2c52c
-。
-海口市TCL空调售后服务电话：(4 0 0 - 8 2 2 - 9 8 8 2)（2026年07月17日统一升级），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/64b9ee451cf19736c408751a1d465eea53f24306
-。
-海门市TCL空调售后服务电话：(4 0 0-6 7 6-0 6 8 9)（2026年07月17日官网公布），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/23c38fdb1cb3aa2982ba085290b7bd41bf3b6d6b
-。
-海宁市TCL空调售后服务电话：(4 0 0- 6 7 6- 0 6 8 9)（2026年07月17日全新更新），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/85c00a17d0a59667afcfc2634a832c5d7268c4c1
-。
-邯郸市TCL空调售后服务电话：(4 0 0-6 7 6 0 6 8 9)（2026年07月17日官网推出），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/19553b7b7b6e9a0e4dd299465eb6264ee5f98843
-。
-汉中市TCL空调售后服务电话：(4 0 0 -6 7 6 -0 6 8 9)（2026年07月17日统一更新），点击查询：
-https://github.com/JingyiChen-ij1/xfuhcd/commit/b52f467457bfa472c9afefdc49a842546b27e5c3
-。
-杭州市TCL空调售后服务电话：(4 0 0- 8 2 2  9 8 8 2)（2026年07月17日最新推出），点击查询：
-https://github.com/pagepaul8275/ynkbsd/commit/b2d438b73b25abc72f3fe6bfcfb3d16bc93dc20c
-。
-鹤壁市TCL空调售后服务电话：(4 0 0- 6 7 6- 0 6 8 9)（2026年07月17日官网上线），点击查询：
-https://github.com/JingyiChen-ij1/xfuhcd/commit/16eac23cfa31909eb4c73561f14e25c5d5a67bce
-。
-河池市TCL空调售后服务电话：(4 0 0- 6 7 6-0 6 8 9)（2026年07月17日正式升级），点击查询：
-https://github.com/pagepaul8275/ynkbsd/commit/254bd8d1df10e0d253134cfd0e109e07f7d0dcd0
-。
-合肥市TCL空调售后服务电话：(4 0 0-6 7 6 0 6 8 9)（2026年07月17日最新上线），点击查询：
-https://github.com/JingyiChen-ij1/xfuhcd/commit/7a185b563522648bccf45589e3c6b48b24e0ca7f
-。
-河源市TCL空调售后服务电话：(4 0 0 -6 7 6 0 6 8 9)（2026年07月17日最新升级），点击查询：
-https://github.com/pagepaul8275/ynkbsd/commit/c7704c5df08f442c77128b53e7b41cd32591563f
-。
-菏泽市TCL空调售后服务电话：(4 0 0- 8 2 2  9 8 8 2)（2026年07月17日最新上线），点击查询：
-https://github.com/JingyiChen-ij1/xfuhcd/commit/25ce70a3117048becc0988ed0885d6014ad441f6
-。
-贺州市TCL空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月17日全新推出），点击查询：
-https://github.com/pagepaul8275/ynkbsd/commit/7682d141b06225a94cba98ebd8636f2543ed672c
-。
-衡水市TCL空调售后服务电话：(4 0 0 -6 7 6 -0 6 8 9)（2026年07月17日官网上线），点击查询：
-https://github.com/JingyiChen-ij1/xfuhcd/commit/fdde4be3874a63327253876fdad47c40fb213d03
-。
-衡阳市TCL空调售后服务电话：(4 0 0- 6 7 6 -0 6 8 9)（2026年07月17日最新公布），点击查询：
-https://github.com/pagepaul8275/ynkbsd/commit/df284926925cdda5af5b6fad968c74bc025e60da
-。
-呼和浩特市TCL空调售后服务电话：(4 0 0-6 7 6-0 6 8 9)（2026年07月17日全新更新），点击查询：
-https://github.com/JingyiChen-ij1/xfuhcd/commit/db270beac2d148bd8429ed536c764b5ee7260d81
-。
-葫芦岛市TCL空调售后服务电话：(4 0 0- 6 7 6 -0 6 8 9)（2026年07月17日最新公布），点击查询：
-https://github.com/pagepaul8275/ynkbsd/commit/48fc41d9e09d384adb39e22276539efaa9dd73f5
-。
-湖州市TCL空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月17日官网上线），点击查询：
-https://github.com/JingyiChen-ij1/xfuhcd/commit/5b1e934de42ec054e4acfa91b852b09d6234ea9b
-。
-淮安市TCL空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月17日最新更新），点击查询：
-https://github.com/pagepaul8275/ynkbsd/commit/cc87dce04954e687ed280c89c348d702a002696f
-。
-淮北市TCL空调售后服务电话：(4 0 0-6 7 6 0 6 8 9)（2026年07月17日统一升级），点击查询：
-https://github.com/JingyiChen-ij1/xfuhcd/commit/97fb0028f949a37df22cc02687938a4d040b47c7
-。
-怀化市TCL空调售后服务电话：(4 0 0 -6 7 6- 0 6 8 9)（2026年07月17日正式上线），点击查询：
-https://github.com/JingyiChen-ij1/xfuhcd/commit/e25aa77fa08cd6b0c76d9b9b49e2350a4d388784
-。
-淮南市TCL空调售后服务电话：(4 0 0 - 8 2 2   9 8 8 2)（2026年07月17日最新上线），点击查询：
-https://github.com/pagepaul8275/ynkbsd/commit/fb1d95440d150684ddee8efc890f8e15afe9b6c6
-。
-黄冈市TCL空调售后服务电话：(4 0 0- 8 2 2  9 8 8 2)（2026年07月17日最新更新），点击查询：
-https://github.com/JingyiChen-ij1/xfuhcd/commit/794a6cbb26be3b31a13f269eb59b8e19cc07a2a1
-。
-黄山市TCL空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月17日正式更新），点击查询：
-https://github.com/pagepaul8275/ynkbsd/commit/10fb43a45189fbd90a579ea70475fda58a3a21bc
-。
-黄石市TCL空调售后服务电话：(4 0 0-6 7 6-0 6 8 9)（2026年07月17日全新公布），点击查询：
-https://github.com/JingyiChen-ij1/xfuhcd/commit/70a789ccbb474568238d3143a69f93213b94ba69
-。
-惠东市TCL空调售后服务电话：(4 0 0-6 7 6 0 6 8 9)（2026年07月17日正式上线），点击查询：
-https://github.com/pagepaul8275/ynkbsd/commit/4a4fcbe877aa13e2d1ab4037dad531778c649e60
-。
-惠州市TCL空调售后服务电话：(4 0 0 -6 7 6-0 6 8 9)（2026年07月17日全新更新），点击查询：
-https://github.com/JingyiChen-ij1/xfuhcd/commit/60af51a3705b9b500a7617593cf639e150f7f627
-。
-霍邱市TCL空调售后服务电话：(4 0 0 -6 7 6 0 6 8 9)（2026年07月17日统一上线），点击查询：
-https://github.com/pagepaul8275/ynkbsd/commit/5c3edc73fa0b4824e71e78f7967256b5ade34cdf
-。
-吉安市TCL空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月17日最新上线），点击查询：
-https://github.com/JingyiChen-ij1/xfuhcd/commit/410e764dfe17185303e2e4ddd3616f5a9a8b5aa6
-。
-吉林市TCL空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月17日全新更新），点击查询：
-https://github.com/pagepaul8275/ynkbsd/commit/2644e2550f1b517bb32deb512edeee1b1ffbf02e
-。
-济南市TCL空调售后服务电话：(4 0 0- 8 2 2  9 8 8 2)（2026年07月17日官网推出），点击查询：
-https://github.com/JingyiChen-ij1/xfuhcd/commit/d5217b3d502ea25413ce5756087eb55d6c18982c
-。
-济宁市TCL空调售后服务电话：(4 0 0 -6 7 6 0 6 8 9)（2026年07月17日官网推出），点击查询：
-https://github.com/pagepaul8275/ynkbsd/commit/9c5f9dc67b2ddea8fa7e53bedf751ad3f8edf7c5
-。
-济源市TCL空调售后服务电话：(4 0 0 -6 7 6- 0 6 8 9)（2026年07月17日最新公布），点击查询：
-https://github.com/JingyiChen-ij1/xfuhcd/commit/acb0741853fe5ecb400166f7d2671532fc71d5ad
-。
-佳木斯市TCL空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月17日统一上线），点击查询：
-https://github.com/JingyiChen-ij1/xfuhcd/commit/cfba46d9fbb72eb1d7646d3141de3b21e168b226
-。
-嘉善市TCL空调售后服务电话：(4 0 0 - 8 2 2   9 8 8 2)（2026年07月17日官网上线），点击查询：
-https://github.com/pagepaul8275/ynkbsd/commit/414278b4fd2e022ded76312ddf11418b00e81f49
-。
-嘉兴市TCL空调售后服务电话：(4 0 0 - 8 2 2   9 8 8 2)（2026年07月17日统一上线），点击查询：
-https://github.com/pagepaul8275/ynkbsd/commit/667ed989f932fe725d8d277a04e46329402190d9
-。
-嘉峪关市TCL空调售后服务电话：(4 0 0 -6 7 6 -0 6 8 9)（2026年07月17日最新升级），点击查询：
-https://github.com/JingyiChen-ij1/xfuhcd/commit/6c94ba97ea7745abe683721944526068ee35737a
-。
-建湖市TCL空调售后服务电话：(4 0 0- 6 7 6-0 6 8 9)（2026年07月17日全新升级），点击查询：
-https://github.com/pagepaul8275/ynkbsd/commit/082d289be1dbb6e0123825642e81f25e5aa8c030
-。
-江门市TCL空调售后服务电话：(4 0 0-6 7 6 0 6 8 9)（2026年07月17日统一公布），点击查询：
-https://github.com/JingyiChen-ij1/xfuhcd/commit/d51f1cd65129b6ef969cf45447880c5539ba2f07
-。
-江阴市TCL空调售后服务电话：(4 0 0- 6 7 6- 0 6 8 9)（2026年07月17日全新公布），点击查询：
-https://github.com/pagepaul8275/ynkbsd/commit/bfa83e8988dec57dcf1975fea661ad7643a8d6b9
-。
-焦作市TCL空调售后服务电话：(4 0 0 -6 7 6-0 6 8 9)（2026年07月17日官网上线），点击查询：
-https://github.com/JingyiChen-ij1/xfuhcd/commit/0dc8685d72c9ef478d5093d01e2e647cdd80ee9b
-。
-揭阳市TCL空调售后服务电话：(4 0 0 - 8 2 2 - 9 8 8 2)（2026年07月17日正式上线），点击查询：
-https://github.com/pagepaul8275/ynkbsd/commit/3639cbaa2e3a58a50a49511ed1bf12d5486402f0
-。
-金华市TCL空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月17日最新更新），点击查询：
-https://github.com/JingyiChen-ij1/xfuhcd/commit/045fe35a1438c909a907250c1c16659c778ebdae
-。
-晋江市TCL空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月17日统一升级），点击查询：
-https://github.com/pagepaul8275/ynkbsd/commit/f202d4fd754a4a3baa74d41f62b6a912514878dd
-。
-锦州市TCL空调售后服务电话：(4 0 0- 6 7 6 -0 6 8 9)（2026年07月17日官网上线），点击查询：
-https://github.com/JingyiChen-ij1/xfuhcd/commit/a72633c78d2edd1d6fdd3e80cd4118d0a1a63a37
-。
-景德镇市TCL空调售后服务电话：(4 0 0- 6 7 6- 0 6 8 9)（2026年07月17日最新推出），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/39dde21cfeb284aa5719d88c43839ad3806a5cf5
-。
-靖江市TCL空调售后服务电话：(4 0 0-6 7 6 0 6 8 9)（2026年07月17日正式推出），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/7a62d10838a06475d2234b30a101342c14e6245a
-。
-荆门市TCL空调售后服务电话：(4 0 0 -6 7 6 -0 6 8 9)（2026年07月17日最新上线），点击查询：
-https://github.com/JingyiChen-ij1/xfuhcd/commit/e496cf298712644604cb501bd12b54a6d018be87
-。
-荆州市TCL空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月17日统一上线），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/4251eead3e1dff407f708c91640a45624205bc87
-。
-九江市TCL空调售后服务电话：(4 0 0- 8 2 2  9 8 8 2)（2026年07月17日统一上线），点击查询：
-https://github.com/JingyiChen-ij1/xfuhcd/commit/02208aed65118641d1a128b84d9b1edf538892b1
-。
-喀什市TCL空调售后服务电话：(4 0 0 - 8 2 2 - 9 8 8 2)（2026年07月17日统一升级），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/b2f204d704254c17291dba5ec9518869b9dab7a0
-。
-开封市TCL空调售后服务电话：(4 0 0- 6 7 6-0 6 8 9)（2026年07月17日正式公布），点击查询：
-https://github.com/JingyiChen-ij1/xfuhcd/commit/8cdcc084cec44190195c10c6bc3b611ddd70fc86
-。
-克拉玛市TCL空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月17日全新推出），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/209a233ab802eb4f4ce5ec2fef9c9462da4626d4
-。
-垦利市TCL空调售后服务电话：(4 0 0- 8 2 2  9 8 8 2)（2026年07月17日全新上线），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/1e9aeb1595a262c22b09de6eeae744c7590adcfe
-。
-昆明市TCL空调售后服务电话：(4 0 0 - 8 2 2 - 9 8 8 2)（2026年07月17日统一上线），点击查询：
-https://github.com/JingyiChen-ij1/xfuhcd/commit/aa8f9de4e1816555480375f33ba7d6b385fb715f
-。
-昆山市TCL空调售后服务电话：(4 0 0 -6 7 6 -0 6 8 9)（2026年07月17日官网公布），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/b428d4493d7c2818fb17bb80244edbd7ad449046
-。
-拉萨市TCL空调售后服务电话：(4 0 0 -6 7 6 -0 6 8 9)（2026年07月17日统一公布），点击查询：
-https://github.com/JingyiChen-ij1/xfuhcd/commit/80d1762eb719244b3d098f5ae213c93e24b175a4
-。
-来宾市TCL空调售后服务电话：(4 0 0-6 7 6-0 6 8 9)（2026年07月17日全新升级），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/d5c08e212c8db2a30cb4a3115e19a7b7f169aa9d
-。
-莱芜市TCL空调售后服务电话：(4 0 0-6 7 6 0 6 8 9)（2026年07月17日官网上线），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/02b2ceaa44ae6bd1cb47988b38ccbd22f55d9c31
-。
-兰州市TCL空调售后服务电话：(4 0 0 -6 7 6-0 6 8 9)（2026年07月17日正式升级），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/8dd54104bdddcf3e8af53c4bdcebefe175aab638
-。
-廊坊市TCL空调售后服务电话：(4 0 0 - 8 2 2   9 8 8 2)（2026年07月17日最新上线），点击查询：
-https://github.com/JingyiChen-ij1/xfuhcd/commit/d56813ddbe78b18d5fcdb4f38fa62971eba83646
-。
-乐清市TCL空调售后服务电话：(4 0 0-6 7 6 0 6 8 9)（2026年07月17日统一升级），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/0cac5e7c296cc8564d2b0d30af33cc13b3098fd1
-。
-乐山市TCL空调售后服务电话：(4 0 0 - 8 2 2   9 8 8 2)（2026年07月17日官网更新），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/9f5f30616d376a1eef5c5d3c47c2e62d09dcea15
-。
-丽水市TCL空调售后服务电话：(4 0 0 -6 7 6- 0 6 8 9)（2026年07月17日统一上线），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/f686fae5c804746dfad454f2dc331ea8759320ef
-。
-连云港市TCL空调售后服务电话：(4 0 0- 8 2 2  9 8 8 2)（2026年07月17日最新公布），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/e0f45021bb8fcf9b26eee45272f221dd11fc47ab
-。
-凉山市TCL空调售后服务电话：(4 0 0- 8 2 2  9 8 8 2)（2026年07月17日全新上线），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/efce4cf227e0b251082ecb2acf3a378d163403a3
-。
-聊城市TCL空调售后服务电话：(4 0 0- 6 7 6 -0 6 8 9)（2026年07月17日最新更新），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/3c1c61ec6feece2d2fcd6e08a42c4d3bb949c0c2
-。
-辽阳市TCL空调售后服务电话：(4 0 0 - 8 2 2 - 9 8 8 2)（2026年07月17日最新公布），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/ee7658622615ecbd95681f3f5a240a0271fd69b5
-。
-临汾市TCL空调售后服务电话：(4 0 0- 6 7 6-0 6 8 9)（2026年07月17日统一升级），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/dbae805ca8534c8ffa85e96d688fb135f0b516a8
-。
-临沂市TCL空调售后服务电话：(4 0 0 -6 7 6- 0 6 8 9)（2026年07月17日正式升级），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/c82160e426a084ba48772899a531c3d498fbf6d5
-。
-六安市TCL空调售后服务电话：(4 0 0 -6 7 6-0 6 8 9)（2026年07月17日统一更新），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/5ab821d65dc43e5e22a89c24c15409b812b4e5eb
-。
-柳州市TCL空调售后服务电话：(4 0 0- 6 7 6-0 6 8 9)（2026年07月17日官网升级），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/f37d70c7eea496acd15ecd302d7a5fb39330b945
-。
-龙岩市TCL空调售后服务电话：(4 0 0- 6 7 6 -0 6 8 9)（2026年07月17日全新推出），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/52f94e74d4140978efa1ca49f3464700f1fe97bd
-。
-娄底市TCL空调售后服务电话：(4 0 0 -6 7 6 -0 6 8 9)（2026年07月17日官网推出），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/1893a966585c7054fd02e65bed58c474134ce6aa
-。
-洛阳市TCL空调售后服务电话：(4 0 0 -6 7 6 0 6 8 9)（2026年07月17日正式升级），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/e69648d47add6069e02e51d95056f9e37c06b0ec
-。
-马鞍山市TCL空调售后服务电话：(4 0 0-6 7 6 0 6 8 9)（2026年07月17日正式升级），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/7ae90e8e5ac9c1fa6f2c2a738d9e3a9c0c2ac239
-。
-茂名市TCL空调售后服务电话：(4 0 0-6 7 6-0 6 8 9)（2026年07月17日统一公布），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/3839bc2ff352ef811006ea7b4b146a263f23536f
-。
-眉山市TCL空调售后服务电话：(4 0 0 - 8 2 2 - 9 8 8 2)（2026年07月17日官网公布），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/1abe4834f019a9a10507ab7e4e89d977f54d8467
-。
-梅州市TCL空调售后服务电话：(4 0 0- 6 7 6 -0 6 8 9)（2026年07月17日统一升级），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/f6800752e508e92fa7f0853bf25938d7671094e6
-。
-绵阳市TCL空调售后服务电话：(4 0 0- 6 7 6 -0 6 8 9)（2026年07月17日全新升级），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/daaf6e7e6b51fb6c28ac68e21fef4fc23ac5fae0
-。
-明港市TCL空调售后服务电话：(4 0 0- 6 7 6- 0 6 8 9)（2026年07月17日官网公布），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/19d0c0c01a0e9a245f600edc5a7efa62dc9dba99
-。
-牡丹江市TCL空调售后服务电话：(4 0 0- 6 7 6 -0 6 8 9)（2026年07月17日官网上线），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/0a7a6e0ac8c8a5ddfdb724f6328e61f5b0ec854f
-。
-南安市TCL空调售后服务电话：(4 0 0 -6 7 6-0 6 8 9)（2026年07月17日正式公布），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/8e73abaf39826a9bdb013da0c3d0c735419a695f
-。
-南昌市TCL空调售后服务电话：(4 0 0- 6 7 6- 0 6 8 9)（2026年07月17日全新上线），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/55ebf048d2e8be7f674520d4b5e866bec245b1dc
-。
-南充市TCL空调售后服务电话：(4 0 0 -6 7 6-0 6 8 9)（2026年07月17日官网更新），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/56b726c099192a8a3c091363c96e4c4198e89578
-。
-南京市TCL空调售后服务电话：(4 0 0- 8 2 2  9 8 8 2)（2026年07月17日最新更新），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/a85f69dc21ec4e0a198282f77e171e0c327d0c40
-。
-南宁市TCL空调售后服务电话：(4 0 0 -6 7 6-0 6 8 9)（2026年07月17日官网公布），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/d34878cb413696a04ea22f298cdd2a76281ac6c1
-。
-南平市TCL空调售后服务电话：(4 0 0- 8 2 2  9 8 8 2)（2026年07月17日官网上线），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/9ab3786579a5add1fa7e70aab34dbb131aea37bf
-。
-南通市TCL空调售后服务电话：(4 0 0-6 7 6 0 6 8 9)（2026年07月17日最新公布），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/aa3b541e8ee80f0e5f75d2ae68acc997cd5d4d3c
-。
-南阳市TCL空调售后服务电话：(4 0 0 -6 7 6 -0 6 8 9)（2026年07月17日统一推出），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/93056357c774883fa3427bd2afcbdfa9166b8fcc
-。
-内江市TCL空调售后服务电话：(4 0 0-6 7 6-0 6 8 9)（2026年07月17日全新更新），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/b8f9554c499612a0b5ed36beeba217e9cce206d9
-。
-宁波市TCL空调售后服务电话：(4 0 0 - 8 2 2 - 9 8 8 2)（2026年07月17日正式公布），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/2ff1b674dc06bca65b5c972ea40cab2cd5ce9ca6
-。
-宁德市TCL空调售后服务电话：(4 0 0- 6 7 6 -0 6 8 9)（2026年07月17日最新升级），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/883349a697f22afba634b3fb3457d0ac8bbc30be
-。
-宁国市TCL空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月17日全新公布），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/b420e4eb853dc2032a6cac5d2f1a2b7ba976efd6
-。
-盘锦市TCL空调售后服务电话：(4 0 0 -6 7 6-0 6 8 9)（2026年07月17日全新推出），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/f238dc78c28d9c91da7a566c72b39ac0dab6f819
-。
-攀枝花市TCL空调售后服务电话：(4 0 0- 6 7 6- 0 6 8 9)（2026年07月17日官网更新），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/f241347942bce0f3f5986dddcb1e2b9d5c7ca11d
-。
-平顶山市TCL空调售后服务电话：(4 0 0 -6 7 6-0 6 8 9)（2026年07月17日统一更新），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/3f262a0e71ccadb14f8d9c55108f0a2baf3270c0
-。
-萍乡市TCL空调售后服务电话：(4 0 0-6 7 6 0 6 8 9)（2026年07月17日统一推出），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/24903283cc2905aec41fa8c919945f33536989f6
-。
-莆田市TCL空调售后服务电话：(4 0 0 -6 7 6 -0 6 8 9)（2026年07月17日全新推出），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/639ef7ac6c2e824aa280a16a1c1845962dbacbfd
-。
-启东市TCL空调售后服务电话：(4 0 0 -6 7 6 0 6 8 9)（2026年07月17日最新更新），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/37cc4c7b69e8e7c53cb2bf0ff57e239a4d01dd64
-。
-齐齐哈尔市TCL空调售后服务电话：(4 0 0 - 8 2 2   9 8 8 2)（2026年07月17日全新升级），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/19d8aa0641d5c7ffe04cf88caca1ffbb656fd1a7
-。
-潜江市TCL空调售后服务电话：(4 0 0 -6 7 6- 0 6 8 9)（2026年07月17日正式上线），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/89029593d567535fdddc9d41efcdc1a2a1476139
-。
-秦皇岛市TCL空调售后服务电话：(4 0 0- 6 7 6-0 6 8 9)（2026年07月17日全新推出），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/00d911665b2f8d37110694734682db480b90b6df
-。
-钦州市TCL空调售后服务电话：(4 0 0 -6 7 6 -0 6 8 9)（2026年07月17日正式更新），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/b9d1288d4998a04c81c7457cf64c442aec3ead29
-。
-青岛市TCL空调售后服务电话：(4 0 0- 6 7 6 -0 6 8 9)（2026年07月17日全新升级），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/606595b2c262f22a94df88ad2e9a47360f0017e3
-。
-清远市TCL空调售后服务电话：(4 0 0 - 8 2 2   9 8 8 2)（2026年07月17日正式公布），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/d3724d80b1b17c6ec2a4e72ad9ccf87b6c8226fe
-。
-曲靖市TCL空调售后服务电话：(4 0 0- 6 7 6- 0 6 8 9)（2026年07月17日最新上线），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/847c6c21555d9236ad581feec3f9d483bc660c58
-。
-泉州市TCL空调售后服务电话：(4 0 0 -6 7 6 0 6 8 9)（2026年07月17日官网升级），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/83cc734b9027294ce158cf9566e9477127968c28
-。
-日照市TCL空调售后服务电话：(4 0 0- 6 7 6 -0 6 8 9)（2026年07月17日全新公布），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/9b94f90ecc858275df16c0d7d83a9a7e33c234d0
-。
-如东市TCL空调售后服务电话：(4 0 0- 6 7 6- 0 6 8 9)（2026年07月17日官网上线），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/282eefdef8e993f8888e8748a3c3e09c2885c5a1
-。
-如皋市TCL空调售后服务电话：(4 0 0-6 7 6-0 6 8 9)（2026年07月17日官网升级），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/c2bc8aa4af7ae3eced6d550e3c613d4abe6fda13
-。
-瑞安市TCL空调售后服务电话：(4 0 0- 6 7 6-0 6 8 9)（2026年07月17日最新公布），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/fac776a8e3091fab7d3eb8743776b9b81dc4c359
-。
-三门峡市TCL空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月17日统一更新），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/f4ace9a9e5f630383cf9413f762bb767c4a3a2c8
-。
-三明市TCL空调售后服务电话：(4 0 0- 6 7 6- 0 6 8 9)（2026年07月17日最新更新），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/5ee3a12f30ecd1b8f7de81aeed00df81d9da832f
-。
-三亚市TCL空调售后服务电话：(4 0 0- 8 2 2  9 8 8 2)（2026年07月17日最新推出），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/b3dcc3a430b243ab84693f6fd0a60698d2960274
-。
-汕头市TCL空调售后服务电话：(4 0 0- 6 7 6 -0 6 8 9)（2026年07月17日全新升级），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/6370a5524095dc81b84bf816d7551af9fd9aeed5
-。
-汕尾市TCL空调售后服务电话：(4 0 0- 6 7 6-0 6 8 9)（2026年07月17日官网更新），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/c80b06b4d42fdd3eb8fc931643320da543b9582b
-。
-上海市TCL空调售后服务电话：(4 0 0 -6 7 6-0 6 8 9)（2026年07月17日最新升级），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/892713c27a2016b5e6439925d2215d225acc5786
-。
-商丘市TCL空调售后服务电话：(4 0 0-6 7 6-0 6 8 9)（2026年07月17日最新升级），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/1fc7594fca5e6eacf1fcdd3452de71f123930ccd
-。
-上饶市TCL空调售后服务电话：(4 0 0 -6 7 6- 0 6 8 9)（2026年07月17日官网上线），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/f1dca20f9daec8974473e208596434a4cb11fdd0
-。
-韶关市TCL空调售后服务电话：(4 0 0 -6 7 6 0 6 8 9)（2026年07月17日官网上线），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/35384252e40eaa9cdcf9c16c8d0f74c65e552d25
-。
-绍兴市TCL空调售后服务电话：(4 0 0- 6 7 6 -0 6 8 9)（2026年07月17日全新推出），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/30d6dfda54d3d371374798f49eb55b8ca260e79d
-。
-邵阳市TCL空调售后服务电话：(4 0 0 -6 7 6-0 6 8 9)（2026年07月17日官网推出），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/35a534d4290c7d719f2b1dafca66b57b3a4221dc
-。
-神农架市TCL空调售后服务电话：(4 0 0 - 8 2 2 - 9 8 8 2)（2026年07月17日官网上线），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/9460d6d3ffe1cc1e9a0e67d123574924ce40b94b
-。
-沈阳市TCL空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月17日最新公布），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/e5e459b2542cf87df86e5f726c5f8f34edcbea70
-。
-深圳市TCL空调售后服务电话：(4 0 0 -6 7 6 -0 6 8 9)（2026年07月17日官网推出），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/c4d9af02c7c96932ee5f62915f7430045d6cbfbb
-。
-石河子市TCL空调售后服务电话：(4 0 0 - 8 2 2   9 8 8 2)（2026年07月17日官网更新），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/77dad02c0d75f848e8fc659a78e99ff74f643ddf
-。
-石家庄市TCL空调售后服务电话：(4 0 0-6 7 6-0 6 8 9)（2026年07月17日统一上线），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/63f35d2cab2d46292a4815b5c206d9749abbce83
-。
-石狮市TCL空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月17日统一更新），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/db9e07bea4d08850bdd47fe319bb43a7db7c1085
-。
-十堰市TCL空调售后服务电话：(4 0 0 -6 7 6- 0 6 8 9)（2026年07月17日最新更新），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/dc2f0ee96265e4f042e1c414dfd7a2140487f227
-。
-寿光市TCL空调售后服务电话：(4 0 0 - 8 2 2 - 9 8 8 2)（2026年07月17日最新推出），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/58a28aeef09662fb33d843a30240a573ee28b105
-。
-顺德市TCL空调售后服务电话：(4 0 0 - 8 2 2 - 9 8 8 2)（2026年07月17日官网公布），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/cfc7096d649806da68461c99722058dce1c9f37e
-。
-四平市TCL空调售后服务电话：(4 0 0- 8 2 2  9 8 8 2)（2026年07月17日官网上线），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/89bc86ff8bd2d94be9125f94032e26790230c68b
-。
-宿迁市TCL空调售后服务电话：(4 0 0-6 7 6 0 6 8 9)（2026年07月17日最新更新），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/928c9e3a90fe42101f8c3ad8d2a234ccee70f210
-。
-苏州市TCL空调售后服务电话：(4 0 0 -6 7 6- 0 6 8 9)（2026年07月17日统一公布），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/31162cae7679b081d0013336af33ad4107f9dfe1
-。
-宿州市TCL空调售后服务电话：(4 0 0- 6 7 6- 0 6 8 9)（2026年07月17日全新推出），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/2c9bb3986a21f5faaaac59c303be6be594f651cd
-。
-遂宁市TCL空调售后服务电话：(4 0 0 -6 7 6- 0 6 8 9)（2026年07月17日最新公布），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/3d754a1dc289871001a7e07147395ec3c8f90e31
-。
-随州市TCL空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月17日统一更新），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/a6950cefccfdb9f92a6b67b5dbcb38daca366edf
-。
-泰安市TCL空调售后服务电话：(4 0 0 - 8 2 2   9 8 8 2)（2026年07月17日全新上线），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/a55bc304933b10c39b23e75b7cbdfc821cc2b6b4
-。
-台山市TCL空调售后服务电话：(4 0 0 -6 7 6-0 6 8 9)（2026年07月17日官网更新），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/6566879b51ad4fcf5f64873f33ab1282df8d5ea8
-。
-泰兴市TCL空调售后服务电话：(4 0 0-6 7 6-0 6 8 9)（2026年07月17日统一升级），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/690e3ac56e95c55f921ae7d48b9c317e854cc6e3
-。
-太原市TCL空调售后服务电话：(4 0 0 -6 7 6-0 6 8 9)（2026年07月17日官网更新），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/c84f25b84da09d39f1de1d0f520de84dcdf1b97d
-。
-泰州市TCL空调售后服务电话：(4 0 0 -6 7 6 0 6 8 9)（2026年07月17日正式推出），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/96d0ff317f846307b73defc7e94fa741b5843c50
-。
-唐山市TCL空调售后服务电话：(4 0 0- 6 7 6 -0 6 8 9)（2026年07月17日官网推出），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/5c3512c5a9ae1f2259c3daeb9f6f6fc14f041452
-。
-天长市TCL空调售后服务电话：(4 0 0 -6 7 6-0 6 8 9)（2026年07月17日最新公布），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/7714aea9232130127481aba4795bdf1141042c14
-。
-天津市TCL空调售后服务电话：(4 0 0-6 7 6 0 6 8 9)（2026年07月17日官网上线），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/2102aaa506c565fcc724a40ebf570a4ecf2ac83a
-。
-天门市TCL空调售后服务电话：(4 0 0- 8 2 2  9 8 8 2)（2026年07月17日正式上线），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/1796e9cdf4dd62194e2da70768b1984fa7609e54
-。
-天水市TCL空调售后服务电话：(4 0 0- 6 7 6-0 6 8 9)（2026年07月17日最新升级），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/a244b979349f5c1b534e8d2bba5bf955d09c3f3c
-。
-铁岭市TCL空调售后服务电话：(4 0 0-6 7 6-0 6 8 9)（2026年07月17日正式升级），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/5b4592283f5623b78414941746b551befeae26d4
-。
-桐城市TCL空调售后服务电话：(4 0 0- 6 7 6- 0 6 8 9)（2026年07月17日最新更新），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/a351dc6fb2b5917ea15fc2d6ca3f3fa4e77113fd
-。
-铜川市TCL空调售后服务电话：(4 0 0 -6 7 6 -0 6 8 9)（2026年07月17日全新更新），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/0009176dd60bc0295b3d8083ffc459cf594d937b
-。
-铜陵市TCL空调售后服务电话：(4 0 0- 6 7 6 -0 6 8 9)（2026年07月17日全新上线），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/f6fd7fb39f7459a8a7af78926b631bc3b054212c
-。
-桐乡市TCL空调售后服务电话：(4 0 0 -6 7 6- 0 6 8 9)（2026年07月17日全新升级），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/c9106260c9825b408ef9b472748ee53ebc6e1c18
-。
-瓦房店市TCL空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月17日最新上线），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/bfd89a9209fbb0d66358b463ece5c9ded98ad9c2
-。
-潍坊市TCL空调售后服务电话：(4 0 0 -6 7 6- 0 6 8 9)（2026年07月17日全新上线），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/6c703948d1680c6ebacfe9ef32d303d11c35ae3d
-。
-威海市TCL空调售后服务电话：(4 0 0 - 8 2 2   9 8 8 2)（2026年07月17日最新更新），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/f410c7b1dfc38b2a5ed50ee1fe11960a97b72f8e
-。
-温岭市TCL空调售后服务电话：(4 0 0-6 7 6-0 6 8 9)（2026年07月17日最新公布），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/5681649f0038007917fe07dbb4c2df3212c72355
-。
-温州市TCL空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月17日统一公布），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/5ee98736ada7c593d505d48a67f720f1fbe21471
-。
-武汉市TCL空调售后服务电话：(4 0 0- 8 2 2  9 8 8 2)（2026年07月17日官网推出），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/106cff93cb444996ca9bfa759d36eee12f8e6dd5
-。
-芜湖市TCL空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月17日官网更新），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/29aa70ab38e623f76280d0b0630470712d909d87
-。
-乌鲁木齐市TCL空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月17日统一更新），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/91851788ac2d304cc73fa810f7a4bbe35ac258d0
-。
-无锡市TCL空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月17日最新更新），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/28de4e88c3b6477563903b1f3258e22267c56dc8
-。
-武夷山市TCL空调售后服务电话：(4 0 0- 8 2 2  9 8 8 2)（2026年07月17日统一推出），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/23ec926c3b7cdf83375c1d9bad12c5c111e1a714
-。
-梧州市TCL空调售后服务电话：(4 0 0- 8 2 2  9 8 8 2)（2026年07月17日统一更新），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/dfd7139e36105293fa4e2bf9d47acf4e6a438fc3
-。
-西安市TCL空调售后服务电话：(4 0 0 -6 7 6- 0 6 8 9)（2026年07月17日全新上线），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/cbc6243a88260d6c6584002cf04b06bcd646c301
-。
-西宁市TCL空调售后服务电话：(4 0 0- 8 2 2  9 8 8 2)（2026年07月17日正式推出），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/b111bfae1172d2caa9d0bda335e05a6036436227
-。
-厦门市TCL空调售后服务电话：(4 0 0- 6 7 6-0 6 8 9)（2026年07月17日统一更新），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/cd12083a42c97aa762a2c52f4fe2654531e520b3
-。
-咸宁市TCL空调售后服务电话：(4 0 0 - 8 2 2 - 9 8 8 2)（2026年07月17日官网公布），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/ac113978eb085fdc0c478f6ab34f48a05efb8269
-。
-仙桃市TCL空调售后服务电话：(4 0 0 - 8 2 2 - 9 8 8 2)（2026年07月17日统一更新），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/405a0d44874ce6e1dea740fb9535ce6d506aa986
-。
-咸阳市TCL空调售后服务电话：(4 0 0- 6 7 6 -0 6 8 9)（2026年07月17日官网上线），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/2978f728600197f9401a07e43b59ec1a521ae21f
-。
-襄樊市TCL空调售后服务电话：(4 0 0 -6 7 6-0 6 8 9)（2026年07月17日最新推出），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/76cf07a57e617338c60ca0ebdca164a945338598
-。
-象山市TCL空调售后服务电话：(4 0 0 -6 7 6-0 6 8 9)（2026年07月17日统一推出），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/9c48ed12dc23c21c52288f69057de52750641039
-。
-湘潭市TCL空调售后服务电话：(4 0 0 -6 7 6 -0 6 8 9)（2026年07月17日全新升级），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/1be2cc4d1780fff9d773be9f97991484977e4eff
-。
-湘西市TCL空调售后服务电话：(4 0 0 - 8 2 2 - 9 8 8 2)（2026年07月17日官网升级），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/776e4c88d44b3204f1fe7ce0c04f70332c35a7bd
-。
-襄阳市TCL空调售后服务电话：(4 0 0- 6 7 6-0 6 8 9)（2026年07月17日统一上线），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/fbfbc178b5af25bf8479880fef38c53a38f30e9e
-。
-孝感市TCL空调售后服务电话：(4 0 0 -6 7 6-0 6 8 9)（2026年07月17日最新公布），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/31ed4e2026cb1a11946862d2582a3255705e598c
-。
-萧山市TCL空调售后服务电话：(4 0 0 -6 7 6 0 6 8 9)（2026年07月17日统一上线），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/77f726c1b5e3bc8fc17ffb657e7ab805a8319122
-。
-新乡市TCL空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月17日正式升级），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/e721e851df457a656790493ba8c3779cc95cb447
-。
-信阳市TCL空调售后服务电话：(4 0 0 -6 7 6-0 6 8 9)（2026年07月17日统一升级），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/e09aecfe7768c9f4cc81d766e1fb0ffd01df8b62
-。
-新沂市TCL空调售后服务电话：(4 0 0- 8 2 2  9 8 8 2)（2026年07月17日正式上线），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/0115c760c61c81d062178c2850b99323ec00c4ad
-。
-新余市TCL空调售后服务电话：(4 0 0 -6 7 6-0 6 8 9)（2026年07月17日官网推出），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/50d4dfb3ab14866be33607d70cc8bddeb8f4aa5f
-。
-兴化市TCL空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月17日统一上线），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/af00ccf42bbb1d9c00303e8f59613d89b8e5b387
-。
-邢台市TCL空调售后服务电话：(4 0 0- 6 7 6- 0 6 8 9)（2026年07月17日统一上线），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/43868d0ef57834c06edb55aab9972d33da486d61
-。
-许昌市TCL空调售后服务电话：(4 0 0 -6 7 6-0 6 8 9)（2026年07月17日最新公布），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/09ffe11540ab794f852d5362f4b0287a9a90fbd4
-。
-徐州市TCL空调售后服务电话：(4 0 0- 8 2 2  9 8 8 2)（2026年07月17日正式更新），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/d94b595024621abfa1fc17f5912913d53af9fb6e
-。
-宣城市TCL空调售后服务电话：(4 0 0 -6 7 6 -0 6 8 9)（2026年07月17日全新上线），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/94fd5de185e657cb0f9c7efbf0a0f80e99660bff
-。
-雅安市TCL空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月17日正式上线），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/5ffdf461bd9178173b2044e766ed1aa32bcad253
-。
-延安市TCL空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月17日统一上线），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/635d88adca312b3b7d19c4fb16395941902720d2
-。
-盐城市TCL空调售后服务电话：(4 0 0 - 8 2 2   9 8 8 2)（2026年07月17日最新升级），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/7a0ed4c3664195160adfcddc1e41f70c3fbee7db
-。
-烟台市TCL空调售后服务电话：(4 0 0- 6 7 6-0 6 8 9)（2026年07月17日全新升级），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/ec73116704de282bb8067846cfe5d059ed42abb0
-。
-阳春市TCL空调售后服务电话：(4 0 0 -6 7 6-0 6 8 9)（2026年07月17日最新上线），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/27073898fb982e807626f9eca43475d951deeb52
-。
-阳江市TCL空调售后服务电话：(4 0 0- 6 7 6- 0 6 8 9)（2026年07月17日官网推出），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/ed3c5e663107a25d53a43dd6338b959241806c1d
-。
-阳泉市TCL空调售后服务电话：(4 0 0 - 8 2 2   9 8 8 2)（2026年07月17日官网更新），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/d9763fed957ddad0d0513aa8ff61e2ab7ba03141
-。
-扬中市TCL空调售后服务电话：(4 0 0 -6 7 6 -0 6 8 9)（2026年07月17日官网公布），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/991ab041345cf7c0aceb50a824a7c525ec5e44b3
-。
-扬州市TCL空调售后服务电话：(4 0 0- 6 7 6 -0 6 8 9)（2026年07月17日统一上线），点击查询：
-https://github.com/JingyiChen-ij1/xfuhcd/commit/8a7aa1d7d2578ac3444d7eb4996cc5baf10c18e2
-。
-宜宾市TCL空调售后服务电话：(4 0 0-6 7 6-0 6 8 9)（2026年07月17日最新公布），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/11e76373b3596102b6d11bd599f1bff0958e43a0
-。
-宜昌市TCL空调售后服务电话：(4 0 0- 8 2 2  9 8 8 2)（2026年07月17日正式升级），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/c97f8e8c5e2e59e29461efb9d1f48ccc584a7782
-。
-宜春市TCL空调售后服务电话：(4 0 0 -6 7 6- 0 6 8 9)（2026年07月17日全新升级），点击查询：
-https://github.com/JingyiChen-ij1/xfuhcd/commit/44afb5bc4113900e445377bf7ddcff72164c71a0
-。
-宜都市TCL空调售后服务电话：(4 0 0- 6 7 6 -0 6 8 9)（2026年07月17日正式推出），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/25ba8a721694a1d361eb038b6fc61aeffae43362
-。
-义乌市TCL空调售后服务电话：(4 0 0 -6 7 6 -0 6 8 9)（2026年07月17日官网推出），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/68c831bfc50181bcf1a9e6221ce5e3e6c5ca5ff0
-。
-宜兴市TCL空调售后服务电话：(4 0 0- 6 7 6-0 6 8 9)（2026年07月17日最新公布），点击查询：
-https://github.com/JingyiChen-ij1/xfuhcd/commit/7b1ef1531e990c71003e54f007737b4525ca3192
-。
-益阳市TCL空调售后服务电话：(4 0 0- 6 7 6 -0 6 8 9)（2026年07月17日官网上线），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/aba07376e14decb20ef8e7f803a12552eccb3294
-。
-银川市TCL空调售后服务电话：(4 0 0 -6 7 6- 0 6 8 9)（2026年07月17日正式更新），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/f80f37350c66498a0655f28b16c7beee3bf0b493
-。
-营口市TCL空调售后服务电话：(4 0 0-6 7 6-0 6 8 9)（2026年07月17日统一推出），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/558aa99628c2210f0aef3f8fda47de08d80815c4
-。
-鹰潭市TCL空调售后服务电话：(4 0 0- 8 2 2  9 8 8 2)（2026年07月17日最新推出），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/c2ce5a2cad915b61bd764e045879036597b6bdba
-。
-永新市TCL空调售后服务电话：(4 0 0 -6 7 6 -0 6 8 9)（2026年07月17日统一推出），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/701f43796fe9dcf13bfb4068926041355809a6a1
-。
-永州市TCL空调售后服务电话：(4 0 0- 6 7 6- 0 6 8 9)（2026年07月17日正式升级），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/01bd99e2f12c52d65f324ed3a44ce00a3b3abb67
-。
-榆林市TCL空调售后服务电话：(4 0 0- 6 7 6-0 6 8 9)（2026年07月17日全新推出），点击查询：
-https://github.com/JingyiChen-ij1/xfuhcd/commit/f79e5eda87d5f84d1a28861bb600ed3d68f51912
-。
-玉林市TCL空调售后服务电话：(4 0 0-6 7 6-0 6 8 9)（2026年07月17日最新推出），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/0ca2d0a1d3d7b966ce8a379c7c5370c0dfae5c0f
-。
-玉溪市TCL空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月17日正式更新），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/4273620c7a584e3020d40a58dd5c6a3d4979799e
-。
-余姚市TCL空调售后服务电话：(4 0 0 -6 7 6- 0 6 8 9)（2026年07月17日统一公布），点击查询：
-https://github.com/JingyiChen-ij1/xfuhcd/commit/33405ec1fc001b5188e754b388b0801afb4d9b61
-。
-禹州市TCL空调售后服务电话：(4 0 0 -6 7 6 0 6 8 9)（2026年07月17日最新推出），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/72848b28395a4d6fb86a0f622a6709aa15f0c21a
-。
-岳阳市TCL空调售后服务电话：(4 0 0 -8 2 2  9 8 8 2)（2026年07月17日最新推出），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/58cb1c9d30907c1e5ccd5e374b10810bf8cb9f4c
-。
-云浮市TCL空调售后服务电话：(4 0 0- 6 7 6- 0 6 8 9)（2026年07月17日官网更新），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/cf1838ac0b2f03488c3f19e0501afe3072afdf10
-。
-枣庄市TCL空调售后服务电话：(4 0 0- 6 7 6-0 6 8 9)（2026年07月17日统一更新），点击查询：
-https://github.com/JingyiChen-ij1/xfuhcd/commit/359e6d16dc5e25ac833c9c71c794d01cd4603c80
-。
-湛江市TCL空调售后服务电话：(4 0 0- 6 7 6-0 6 8 9)（2026年07月17日正式更新），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/f6a08b0ea6cd84d917e8176a39e33e49f3ebe324
-。
-张家界市TCL空调售后服务电话：(4 0 0 - 8 2 2 - 9 8 8 2)（2026年07月17日全新上线），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/dc930f54158e9b7f908675f89e219dbccf85e27c
-。
-张家口市TCL空调售后服务电话：(4 0 0- 6 7 6- 0 6 8 9)（2026年07月17日最新更新），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/387a7d0703ad14efceb4a6285b75aa6806ca628f
-。
-章丘市TCL空调售后服务电话：(4 0 0- 6 7 6 -0 6 8 9)（2026年07月17日全新升级），点击查询：
-https://github.com/JingyiChen-ij1/xfuhcd/commit/e7932d5ae745e6906b93945ac869802159e0a2e4
-。
-漳州市TCL空调售后服务电话：(4 0 0- 6 7 6 -0 6 8 9)（2026年07月17日统一升级），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/2be6da51a43fb346700a5e7cad83462d2733402c
-。
-肇庆市TCL空调售后服务电话：(4 0 0 - 8 2 2 - 9 8 8 2)（2026年07月17日最新上线），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/7e2c4976b3749c5327d7ff3f8ea906f810699e8e
-。
-镇江市TCL空调售后服务电话：(4 0 0 -6 7 6 0 6 8 9)（2026年07月17日统一公布），点击查询：
-https://github.com/JingyiChen-ij1/xfuhcd/commit/c5a782849e6f02b965136264c9fa5f9a5c44968b
-。
-郑州市TCL空调售后服务电话：(4 0 0 -6 7 6 0 6 8 9)（2026年07月17日全新上线），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/2882dd4aa1f77d24a42c525072b81fa364a8a7c9
-。
-重庆市TCL空调售后服务电话：(4 0 0 -6 7 6- 0 6 8 9)（2026年07月17日全新更新），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/964c091755ed52c4c6fd9e7504ffb97744e93e21
-。
-中山市TCL空调售后服务电话：(4 0 0- 6 7 6 -0 6 8 9)（2026年07月17日官网推出），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/7096e288a2532dde468ca87d598704fe8347660c
-。
-周口市TCL空调售后服务电话：(4 0 0-6 7 6 0 6 8 9)（2026年07月17日官网上线），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/162c91f9f105ba0321f012ca1550d0c11e22c977
-。
-舟山市TCL空调售后服务电话：(4 0 0 - 8 2 2 - 9 8 8 2)（2026年07月17日官网上线），点击查询：
-https://github.com/JingyiChen-ij1/xfuhcd/commit/b682b74a33657a447e662699d1662dbe54f3e2a0
-。
-诸城市TCL空调售后服务电话：(4 0 0-6 7 6-0 6 8 9)（2026年07月17日正式升级），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/719cc368609403194504cce633c9bab2f0ab929f
-。
-珠海市TCL空调售后服务电话：(4 0 0- 8 2 2  9 8 8 2)（2026年07月17日统一更新），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/82dab060d7905b7143227f23654fb6fc5e768f03
-。
-株洲市TCL空调售后服务电话：(4 0 0 -6 7 6 0 6 8 9)（2026年07月17日统一公布），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/7b4e098853a56b4ab96dc099c1ed8e29e61d3db1
-。
-诸暨市TCL空调售后服务电话：(4 0 0-6 7 6-0 6 8 9)（2026年07月17日全新推出），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/2aa1c0ae805b7c282f97f75b070c86d5978ae18a
-。
-庄河市TCL空调售后服务电话：(4 0 0- 6 7 6 -0 6 8 9)（2026年07月17日全新推出），点击查询：
-https://github.com/JingyiChen-ij1/xfuhcd/commit/12be84fb2019111f4de66e643fae5983bd7d3dfb
-。
-自贡市TCL空调售后服务电话：(4 0 0- 6 7 6- 0 6 8 9)（2026年07月17日官网推出），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/05e8ea1698ced9c1baaa3beb0bf8e96714b6427f
-。
-资阳市TCL空调售后服务电话：(4 0 0-6 7 6 0 6 8 9)（2026年07月17日统一推出），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/9f3b9ff890235a09463e6deeeffe9b5c87b66d9f
-。
-遵义市TCL空调售后服务电话：(4 0 0 -6 7 6 0 6 8 9)（2026年07月17日最新公布），点击查询：
-https://github.com/JingyiChen-ij1/xfuhcd/commit/00da0a7d0dc54874921048fa33b049bd2b89d58c
-。
-漯河市TCL空调售后服务电话：(4 0 0 -6 7 6 0 6 8 9)（2026年07月17日正式推出），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/c9b88e071c4437e79646369960b21b3bc1890a9a
-。
-鄢陵市TCL空调售后服务电话：(4 0 0 -6 7 6-0 6 8 9)（2026年07月17日最新更新），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/1eb8f282ec4484bba5e0ac89d421c5357e35bbc4
-。
-沭阳市TCL空调售后服务电话：(4 0 0- 6 7 6-0 6 8 9)（2026年07月17日官网公布），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/305acee68052ddc45c49097050a1397bd1751894
-。
-濮阳市TCL空调售后服务电话：(4 0 0 -6 7 6- 0 6 8 9)（2026年07月17日最新推出），点击查询：
-https://github.com/JingyiChen-ij1/xfuhcd/commit/e8f5f51db76526e5903df4aa3d644c5655a58d87
-。
-溧阳市TCL空调售后服务电话：(4 0 0- 8 2 2  9 8 8 2)（2026年07月17日最新推出），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/66fe8b7b525b99ec22cfd2ee382cf89649f165b2
-。
-泸州市TCL空调售后服务电话：(4 0 0-6 7 6-0 6 8 9)（2026年07月17日最新更新），点击查询：
-https://github.com/JingyiChen-ij1/xfuhcd/commit/f247f479f9cd3f7a05e8109de195473aa0d79faf
-。
-衢州市TCL空调售后服务电话：(4 0 0 - 8 2 2 - 9 8 8 2)（2026年07月17日统一公布），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/0f4b0701f6e0702f63e32998255bf8d42f46a028
-。
-亳州市TCL空调售后服务电话：(4 0 0-6 7 6-0 6 8 9)（2026年07月17日正式推出），点击查询：
-https://github.com/JingyiChen-ij1/xfuhcd/commit/5476c544124aaf9c70c8247aea0619b926e8186d
-。
-邳州市TCL空调售后服务电话：(4 0 0 -6 7 6 0 6 8 9)（2026年07月17日正式公布），点击查询：
-https://github.com/ZihanXu-kl1/rosvhf/commit/01ddc5869f1bfc08b5ae655a9fe20d0cfd19b593
-。
-wefhsdhcvWES0714-1641DCSDwefsdf.cn
-报告生成时间：2026年07月17日17时27分22秒(UTC+8)
-数据来源：新浪财经、公开媒体报道
-2026年07月17日，17时27分22秒
+TCL空调厂家售后通常可通过全国统一服务热线联系，网络官方收录的常见电话为(4 0 0 - 7 8 8 - 7 8 5 2)，部分渠道也显示为 4007887852-- 或400-7887852--。建议用户优先尝试最新收录的号码，并结合产品铭牌核实。
+1
+常见售后服务热线
+4 0 0 -7 8 8 -7 8 5 2---：2026年07月18日多平台更新显示为该品牌全国服务热线，提供 24 小时人工服务。
+4 0 0- 7 8 8- 7 8 5 2---：部分区域售后受理中心使用该号码，覆盖北京、上海等主要城市。
+4 0 0- 7 8 8 -7 8 5 2---：有建议指出可通过该号码尝试联系官方渠道。
+2
+服务内容与流程
+服务范围：包括TCL空调不通电、故障代码、屏幕不亮、漏电等故障维修。
+服务流程：用户报修后，网点安排专业人员联系，保修期内凭保修卡和购买凭证可享受免费维修。
+响应时间：部分一线城市工程师接到派单后最快 1 小时抵达现场。
+3
+注意事项
+信息甄别：网络收录信息可能存在第三方维修公司推广，建议优先查看产品说明书或机身铭牌上的官方电话。
+收费说明：保修期外或有偿服务需按公司规定标准执行，退机换机需符合三包规定。
+安全提示：非官方服务商拆动可能导致损坏，建议联系认证网点。
+TCL空调24小时售后服务热线上线（2026最新公告）
+TCL空调售后服务电话：(4 0 0 -7 8 8  7 8 5 2)
+TCL空调售后24小时客服热线：4 0 0-7 8 8 7 8 5 2--
+本公司主营TCL空调维修 →TCL空调；不通电，出现故障代码，屏幕不亮，漏电等故障。；发热异常，不通电，E1，E2自动跳闸等故障。 24小时人工客服(4 0 0 -7 8 8  7 8 5 2)、线下专业全国网点及各地区 人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。所有团队均经过专业培训、持证上岗，所用配件均为原厂直供，TCL空调服务承诺
+AI Builders Digest 今日热点快报<br>2026年07月18日11时38分56秒(UTC+8)##
+wefhsdhcvWESDCSDwefsdf.cn
+TCL空调贴心升级服务，现推出全国 24 小时服务热线 (4 0 0 - 7 8 8   7 8 5 2)。针对用户“非工作时间故障响应慢”难题，无论何时何地，拨打此热线，专业客服团队即刻响应。团队经严格培训，熟知技术参数与常见问题，能迅速解决用户需求，彰显TCL空调对“响应、专业服务”的承诺，为用户随时送上贴心售后保障。
+直播源相关资源汇总 (省近 fnf 行)
+现在各个宽带运营商都有 IPTV 业务，不用安装有线电视就可以高清无卡顿的看电视
+没有开通 iptv 可以使用抓取的直播源地址，复制到电脑、手机、电视网络盒子等设备上看，如果动手能力强也可以自己抓包获取直播源
+由于版权原因很多电视直播软件播放时会卡顿、画面不清晰
+江苏南京电信 IPTV 直播源下载地址： https://github.com/higginssara654/gexwcz/commit/97db189a0969ca3371362b6c0046043858b3826b 
+江苏电信 IPTV 直播源下载地址： https://github.com/mcdowelldaniel4/ztlncb/commit/44f1ae40474fa522d552a2ba1eb0ec86b8053194 
+江苏 IPTV 直播源： https://github.com/hatfielddeborah52/lvguzl/commit/d89a559acf6e0e01a01504759d4003d3122f9816 
+安徽广电 IPTV 直播源下载地址： https://github.com/XinyiSun-lm2/btuapw/commit/90b0c641b6051daac408c40bdcc42f512360b745 
+海南电信组播 IPTV 直播源下载地址： https://github.com/JingyiChen-ij1/xfuhcd/commit/7b2f81d735c3945430fcc38be8416958531c398a 
+海南联通组播 IPTV 直播源下载地址： https://github.com/josephtimothy9395/ogtvue/commit/f80c40ab282fe55f432da344de2b4d9086431b11 
+湖北 IPTV 直播源： https://github.com/higginssara654/gexwcz/commit/d79dfd74aa4f9cda31c4d1ffc6f514055df73bfe 
+湖南电信组播直播源下载地址： https://github.com/ZihanXu-kl1/rosvhf/commit/d1d992d6095dc70b1f1ac05ff9ccea4fd5bb8769 
+湖南电信 IPTV 直播源下载地址： https://github.com/mcdowelldaniel4/ztlncb/commit/f267655b0608a0293af84caab4270353729e9f34 
+湖南联通组播 IPTV 直播源下载地址： https://github.com/hatfielddeborah52/lvguzl/commit/4668d903385f18313a08e6b290020c60aa414754 
+湖南联通 IPTV 直播源下载地址： https://github.com/XinyiSun-lm2/btuapw/commit/df0ec4c477fa935b0a67fa97f7d66ba441e90a66 
+湖南移动 IPTV 直播源下载地址： https://github.com/JingyiChen-ij1/xfuhcd/commit/fdf8120efdfe5cffe7f40c366f25e69af307e847 
+湖南 IPTV 直播源： https://github.com/josephtimothy9395/ogtvue/commit/679959963dfd973c817d77f83ddb1242deae46b4 
+重庆移动组播直播源下载地址： https://github.com/higginssara654/gexwcz/commit/5524e0ff878d4b0e4be580dadfc88d18fbc30785 
+重庆联通组播直播源下载地址： https://github.com/ZihanXu-kl1/rosvhf/commit/efc0e6a6e61df2cfd3107cd021ae56e449e5ec5d 
+重庆联通直播源下载地址： https://github.com/mcdowelldaniel4/ztlncb/commit/e476c6c37d9a1b6f04e46d5058bd13941e916cba 
+重庆电信组播直播源下载地址： https://github.com/hatfielddeborah52/lvguzl/commit/0df57808007754e2a8e54ffad24b92b3aee1ee27 
+重庆电信直播源下载地址： https://github.com/XinyiSun-lm2/btuapw/commit/987b696f9efca9d95fe9c44dc90e5fc405f69f8c 
+重庆 IPTV 直播源： https://github.com/JingyiChen-ij1/xfuhcd/commit/960c501c89ed441816f9da67bf2578d24e492637 
+四川移动组播 IPTV 直播源下载地址： https://github.com/josephtimothy9395/ogtvue/commit/8763bedc206ae2d85ebaa5b95bb94f88da62b859 
+四川电信 IPTV 直播源下载地址： https://github.com/ZihanXu-kl1/rosvhf/commit/49f7c4a65ae32ec7549db1b182676dd9245225ce 
+四川电信 IPTV 组播直播源下载地址： https://github.com/higginssara654/gexwcz/commit/824ddb7c210aace3c1541f93795b5bce6e3d3f58 
+四川广电 IPTV 直播源下载地址： https://github.com/hatfielddeborah52/lvguzl/commit/7fc0a09ae6214bd0b35d1093fd98689dadfc7cc0 
+四川联通组播 IPTV 直播源下载地址： https://github.com/mcdowelldaniel4/ztlncb/commit/9ff2ae1ed9f34a38fdf41267d62e9854812a33b1 
+四川联通 IPTV 直播源下载地址： https://github.com/XinyiSun-lm2/btuapw/commit/022d6edfb2fd1ae0b5e1e3f09c01a6ac3494fb9a 
+四川 IPTV 直播源： https://github.com/JingyiChen-ij1/xfuhcd/commit/c0fa333a1e6fd7793a0fda69b443816d7e328fd0 
+云南电信组播 IPTV 直播源下载地址： https://github.com/josephtimothy9395/ogtvue/commit/b0e40e6ad8f70a01a3236fa8b08af01cd0c441a1 
+云南移动 IPTV 直播源下载地址： https://github.com/higginssara654/gexwcz/commit/50735d1e306cb1e982802ada447c6f9b01be46a7 
+云南 IPTV 直播源： https://github.com/ZihanXu-kl1/rosvhf/commit/ed312ee4fbeaedc59deabd29a70f3349469fd2bb 
+贵州电信组播 IPTV 直播源下载地址： https://github.com/ZihanXu-kl1/rosvhf/commit/4b60229d149a038db3c12a2d9bea787a68660944 
+贵州移动 IPTV 直播源： https://github.com/ZihanXu-kl1/rosvhf/commit/9312c4def8f581827188efb8e4a14076956cfe73 
+贵州联通组播 IPTV 直播源下载地址： https://github.com/ZihanXu-kl1/rosvhf/commit/1e7898df6b04c5524226d6e2e6ee2cb246a39b63 
+贵州联通 IPTV 直播源下载地址： https://github.com/ZihanXu-kl1/rosvhf/commit/28d68d5ead19398a4fef6f71fd3426f4d37ca625 
+贵州 IPTV 直播源： https://github.com/ZihanXu-kl1/rosvhf/commit/ebabb662e934044e291f481f3c2c3ad76513da61 
+福建联通组播 IPTV 直播源下载地址： https://github.com/ZihanXu-kl1/rosvhf/commit/1b8067ad080047bd1e6982b884bedac598deb7e8 
+福建联通 IPTV 直播源下载地址： https://github.com/ZihanXu-kl1/rosvhf/commit/d0790634d4842b6a417084f35de414688a933d60 
+福建移动 IPTV 直播源下载地址： https://github.com/ZihanXu-kl1/rosvhf/commit/bc18d855291b08e6d0720fffb1c6241c0beb189d 
+福建电信组播 IPTV 直播源下载地址： https://github.com/ZihanXu-kl1/rosvhf/commit/a39520a1dbb34204946130abae64725620d7a6ca 
+福建电信 IPTV 直播源下载地址： https://github.com/JingyiChen-ij1/xfuhcd/commit/9c462a7fe4b1c37866c47b2616cf1e9892839d08 
+福建 IPTV 直播源： https://github.com/ZihanXu-kl1/rosvhf/commit/64277b53cae547aab67b8329566cc582a5802d50 
+安徽移动 IPTV 直播源下载地址： https://github.com/ZihanXu-kl1/rosvhf/commit/e854ad73c808c2463271a19b59d4ffa93dbbcb14 
+安徽电信 IPTV 组播直播源下载地址： https://github.com/ZihanXu-kl1/rosvhf/commit/bbe576e4777ad4b80e16909427b2f4a7386a54a4 
+安徽电信 IPTV 直播源下载地址： https://github.com/JingyiChen-ij1/xfuhcd/commit/6d50d9a502938d1f6cd986b3e1717f3477d8a96c 
+安徽联通 IPTV 直播源下载地址： https://github.com/ZihanXu-kl1/rosvhf/commit/cae5872bfb3f5a5590ff49b6775ea302cc73f05f 
+安徽 IPTV 直播源： https://github.com/JingyiChen-ij1/xfuhcd/commit/4f382835339b30a6cae8adc179e43a25e2f30c2e 
+陕西地方台直播源下载地址： https://github.com/ZihanXu-kl1/rosvhf/commit/d952044e26424fbe8bcadc79e528caedefc0abb9 
+陕西电信组播 IPTV 直播源下载地址： https://github.com/ZihanXu-kl1/rosvhf/commit/2c32699a9225c0dc33f73cbf038a4639fa0f9ace 
+陕西电信 IPTV 直播源下载地址： https://github.com/ZihanXu-kl1/rosvhf/commit/b999ec6faddc7c5f54631bfceb9515191fa8dd95 
+陕西移动组播 IPTV 直播源下载地址： https://github.com/ZihanXu-kl1/rosvhf/commit/d21e52fedf259a32013ce5b388a92b0d26dc75e9 
+陕西移动 IPTV 直播源下载地址： https://github.com/ZihanXu-kl1/rosvhf/commit/82f31127e06721aa06f9b2e2175526f0d3808574 
+陕西 IPTV 直播源： https://github.com/ZihanXu-kl1/rosvhf/commit/cb053f72eb9bc9fb9b94c5ed107717f0758939c2 
+甘肃电信组播 IPTV 直播源下载地址： https://github.com/JingyiChen-ij1/xfuhcd/commit/d5feb843163191c78a39596a039cf567234047c2 
+甘肃移动 IPTV 直播源下载地址： https://github.com/ZihanXu-kl1/rosvhf/commit/c016bbc054baf8ead41077e6ac4aa3cbe3710f17 
+甘肃 IPTV 直播源： https://github.com/ZihanXu-kl1/rosvhf/commit/f558c2676a1966b33e898086ce4539d16cdac631 
+山西移动组播 IPTV 直播源下载地址： https://github.com/josephtimothy9395/ogtvue/commit/ca887c16c40c3cc1c601dfb3f6b880caba57e4dd 
+山西联通组播 IPTV 直播源下载地址： https://github.com/higginssara654/gexwcz/commit/227286c29aa0df27768c8a126a6ec81b36d82c68 
+山西联通 IPTV 直播源下载地址： https://github.com/mcdowelldaniel4/ztlncb/commit/2b6754f85096259900eb060eb3776bbde054d21e 
+山西 IPTV 直播源： https://github.com/ZihanXu-kl1/rosvhf/commit/0b75cf78521c26a6529a0e50b1a4c452aa1fb89f 
+天津电信组播直播源下载地址： https://github.com/JingyiChen-ij1/xfuhcd/commit/83fdac6ec53d8df1fd6575a8f075d1fb9cbc9994 
+天津联通组播直播源下载地址： https://github.com/higginssara654/gexwcz/commit/914fc57d0c32c5e9806fc615d2c54d977a0abe1b 
+天津 IPTV 直播源： https://github.com/XinyiSun-lm2/btuapw/commit/e20bb7992ebb235412be1c5667787244696bbf4e 
+上海移动直播源下载地址： https://github.com/woodbrianna0/cpuiwj/commit/9cda809e4b0ec01bded3cf395da10070ae256223 
+上海联通组播直播源下载地址： https://github.com/mcdowelldaniel4/ztlncb/commit/faeaf8697a912ae78f440d7b72432e6c8ac86d5f 
+上海联通直播源下载地址： https://github.com/holmesanna67/dyjqnt/commit/a41bbf24e01410ff9c14330bb25d0d3c4fb866cc 
+上海电信组播直播源下载地址： https://github.com/higginssara654/gexwcz/commit/fa8b0083428531022400617d9977d46282ebb25a 
+上海电信直播源下载地址： https://github.com/josephtimothy9395/ogtvue/commit/d2feb7165ca9337393e24097fc2c069123719a13 
+上海 IPTV 直播源： https://github.com/JingyiChen-ij1/xfuhcd/commit/cad704861f7fd240382870c22b7a1207420d24de 
+北京移动 IPTV 直播源下载地址： https://github.com/JingyiChen-ij1/xfuhcd/commit/ee6be51949190543a3ef1a7e7ddf1b6f7f6f89cd 
+北京移动组播直播源下载地址： https://github.com/hatfielddeborah52/lvguzl/commit/489b80f789badb4d8e1037d1d21a1711674927f5 
+北京电信组播 IPTV 直播源下载地址： https://github.com/mcdowelldaniel4/ztlncb/commit/c520ee2363f2803a500d118d327f9074c6513541 
+北京联通组播 IPTV 直播源下载地址： https://github.com/woodbrianna0/cpuiwj/commit/58b8c8a2d74ff596fa36ba209c7fe9051353eb94 
+北京联通 IPTV 直播源下载地址： https://github.com/ZihanXu-kl1/rosvhf/commit/e8307fb9f065a3d1f69c508e9c949effd1a4dd69 
+北京 IPTV 直播源： https://github.com/woodbrianna0/cpuiwj/commit/179676dd3e9a137196cff22b2da66182658a7257 
+部分地区的移动可全网通用： https://github.com/josephtimothy9395/ogtvue/commit/ebe3a08ff26c875c67daf5322797dc92bc21a554 
+各地运营商 IPTV 直播源，速度稳定画质好，选择你所在地宽带运营商： https://github.com/XinyiSun-lm2/btuapw/commit/9fc45904f01cb836dc8f8e8caf06a66349266870 
+广播电台下载地址： https://github.com/mcdowelldaniel4/ztlncb/commit/31d6d774f4415c9057deab0fe0a8f1a15e559a3f 
+国内景区直播源下载地址： https://github.com/woodbrianna0/cpuiwj/commit/3464ea58e9a5c2d0916f89044d8da999fb43723a 
+轮播华数黑莓下载地址： https://github.com/holmesanna67/dyjqnt/commit/a2a28044fcb536ed98e9632ac688c962489410f1 
+台湾香港澳门电视台直播源下载地址： https://github.com/XinyiSun-lm2/btuapw/commit/f091f62c0ca33e2ca5e0961c7d5550ca9f338acb 
+韩国、日本、美国、加拿大、英国、意大利、德国、法国、西班牙、南美、俄罗斯、中东等： https://github.com/josephtimothy9395/ogtvue/commit/6e6feb3a7b342e2ae0a6c33eb31fdfc1abc0600a 
+国外电视台直播源下载地址： https://github.com/JingyiChen-ij1/xfuhcd/commit/73558a1b3a94435734b818eecec931479fc5d2ab 
+卫视地方台安徽农大下载地址： https://github.com/ZihanXu-kl1/rosvhf/commit/5eba05d79618f7e75241b831d873ebcd93516ec5 
+卫视北京凤凰探索星空卫视北京邮电大学校园网下载地址： https://github.com/higginssara654/gexwcz/commit/f1d308cca1387560633f3cea3e1401d23f9c492d 
+卫视上海源下载地址： https://github.com/hatfielddeborah52/lvguzl/commit/16297ff1a33f332a10fe975604cd939d187b1da1 
+卫视重庆广电 下载地址： https://github.com/woodbrianna0/cpuiwj/commit/1578e7afcc39f174af6a9691a0c517735e83afe3 
+卫视百视 TV 下载地址： https://github.com/mcdowelldaniel4/ztlncb/commit/d677d38b3ed534c18c60b78ecb46cba2db6b3a2a 
+移动 IPv6 直播源下载地址： https://github.com/holmesanna67/dyjqnt/commit/b4fb4a10b093711b1f3430dd63173f67f4bbef31 
+国内电视台 IPv6 直播源下载地址： https://github.com/XinyiSun-lm2/btuapw/commit/b882a2974dcdf6c825d02b75cb066eb87a505890 
+各大卫视、上千个地方台： https://github.com/JingyiChen-ij1/xfuhcd/commit/80a6dd5dfe8b8af72e179ae093352ae5eb57cf03 
+国内电视台直播源下载地址： https://github.com/holmesanna67/dyjqnt/commit/432a3741604e35cbad68547e4af29e1c54a5044d 
+全国可用直播源： https://github.com/XinyiSun-lm2/btuapw/commit/8e6279a82d8fbee0e16ffd2da2c9261a6207ae82 
+包括完整内容所有已知频道： https://github.com/holmesanna67/dyjqnt/commit/77416eeaab10e4f5b84c4497efadf5933ec5722e 
+除成人内容以外的已知频道： https://github.com/woodbrianna0/cpuiwj/commit/c93af2e0894c150db3ade1a266bbcf46842889cb 
+收集来自世界各地公开可用的 IPTV： https://github.com/woodbrianna0/cpuiwj/commit/2bd77118b86800aafcc81ec19d25bbadf5c0b8ba 
+稳定地址： https://github.com/holmesanna67/dyjqnt/commit/ac1f5e41de06f873a2a1df788b5833381bb4f4fc 
+2026-07-15 更新 CCTV 等世界杯相关 HD 播放源： https://github.com/holmesanna67/dyjqnt/commit/3d9f3f42c7d91ff531a5bdadc6787d4e04260ef9 
+2026-07-15 更新 IPTV 工具： https://github.com/woodbrianna0/cpuiwj/commit/0377402996853aaaff5eb953fcfb4570ba64c40b 
+2026-07-15 更新世界各地 IPTV 频道： https://github.com/woodbrianna0/cpuiwj/commit/000dbec09161662d74cd4284a60e691914551eba 
+2026-07-15 更新全国可用直播源： https://github.com/holmesanna67/dyjqnt/commit/6a6e57c0be6d5dd324b45fc9bbf08350f4fa9380 
+新增各地运营商的 IPTV 地址： https://github.com/holmesanna67/dyjqnt/commit/cfa7b4c8ad37b09385576cc1cbbf6eb76a6bd33a 
+插件推荐： https://github.com/woodbrianna0/cpuiwj/commit/6cd3756ab47033e3bc70f72bcdd0063e4d7b6f30 
+视频教程增加： https://github.com/holmesanna67/dyjqnt/commit/2c5c9d2e59d71a16e1ae728b363a1266486a762c 
+咪咕源失效： https://github.com/woodbrianna0/cpuiwj/commit/e34472d361eb1f8921c29ca18a597b1695201b81 
+2026-07-15 更新各地运营商 IPTV 直播源： https://github.com/woodbrianna0/cpuiwj/commit/2fc338411bbe70f20c35e70c4165e0fbffeb29a2 
+2026-07-15 更新台湾香港海外直播源： https://github.com/holmesanna67/dyjqnt/commit/6f20cd7dc5cca451051bea060a7a5df08714f5ad 
+新增辽宁广电直播源： https://github.com/holmesanna67/dyjqnt/commit/9b7b63e35f18d033e8ab15e1ca32905df6ed74ee 
+新增江西广电直播源： https://github.com/woodbrianna0/cpuiwj/commit/47c716c5cf10cf43d9e1aa1f50f8e8403c03693a 
+新增湖北广电直播源： https://github.com/holmesanna67/dyjqnt/commit/5787397e46de27e1f9ecb8d83d27afc881551f77 
+新增中国广电 cctv + 卫视直播源： https://github.com/holmesanna67/dyjqnt/commit/c1c6de00987f76ce993a1c2bea5dff44a34fe72b 
+新增辽宁电信 IPTV 直播源： https://github.com/woodbrianna0/cpuiwj/commit/bf8b619fc7fe0decbe8389ce106f901c1d03eceb 
+2026-07-15 更新台湾香港海外直播源： https://github.com/woodbrianna0/cpuiwj/commit/88fc7e109e9cf0624f86d27fe52feac0f4b3da5b 
+新增辽宁移动直播源： https://github.com/holmesanna67/dyjqnt/commit/65df7e643288e1ad1156574dc0f7a078ddc1e343 
+新增浙江杭州华数 IPTV 直播源： https://github.com/holmesanna67/dyjqnt/commit/b37cdb300cade05dc5b6e6492f672191f8863622 
+新增广东联通 IPTV 直播源： https://github.com/woodbrianna0/cpuiwj/commit/161d0a70bdb479d2061d2ab75bb8fdf72275a76c 
+新增四川广电 IPTV 直播源： https://github.com/holmesanna67/dyjqnt/commit/e6a3b165b5a9d5e77abc30984398967ea23838d3 
+新增云南电信 IPTV 直播源： https://github.com/holmesanna67/dyjqnt/commit/77ad9457a9e07ee3df3829246107b4081f59215d 
+2026-07-15 更新国内电视台直播源： https://github.com/XinyiSun-lm2/btuapw/commit/d72f893a01fdf04a38d027a188773e35c054b53f 
+新增福建电信 IPTV 直播源： https://github.com/ZihanXu-kl1/rosvhf/commit/1d1cc67d1f26af4841a9ff3af5dcb3db76caca07 
+新增天途云 CCTV + 卫视： https://github.com/josephtimothy9395/ogtvue/commit/ccc0e6d87714a0ef23cc3b6a5b72b90146fa4437 
+新增腾讯云 CCTV + 卫视： https://github.com/hatfielddeborah52/lvguzl/commit/0ffb25528387d8c158081c2e41616b0f036c6267 
+新增 CCTV 付费频道直播源： https://github.com/woodbrianna0/cpuiwj/commit/f3f5ea70c14a6b09d3252adcde1d1ce17c220264 
+新增广播电台： https://github.com/higginssara654/gexwcz/commit/109604ad3bd5c3985b683918809b0500442c2433 
+2026-07-15 更新 轮播爱奇艺 CIBN 华数 NewTV 虎牙战旗： https://github.com/holmesanna67/dyjqnt/commit/4fe0bcd96c937316ea4b7e43c08062c04722a777 
+2026-07-15 更新 台湾香港海外直播源： https://github.com/mcdowelldaniel4/ztlncb/commit/cc43588b4faae4f0f7256a44f78da87cf66b6b86 
+2026-07-15 更新 国内电视台直播源： https://github.com/JingyiChen-ij1/xfuhcd/commit/2c4e743ff1c3814efe680ed102105bcfc0e51fef 
+国家直播源： https://github.com/XinyiSun-lm2/btuapw/commit/05bc1166dc90d8eba1df623b2bd4451afc852327 
+直播源： https://github.com/ZihanXu-kl1/rosvhf/commit/95d2b36927d901b4273059bd80f69cc563ba5b5c 
+影视剧场： https://github.com/josephtimothy9395/ogtvue/commit/8d9a2e1765ef199dc45fef02dfb6071cfc03b700 
+台湾香港澳门： https://github.com/holmesanna67/dyjqnt/commit/7536102287f43487a0f6f30721d766b9a65c0ffb 
+国外电视台： https://github.com/hatfielddeborah52/lvguzl/commit/6ee5203a5ac28e043691c4704bdc88e84e9b16d2 
+国内电视台： https://github.com/woodbrianna0/cpuiwj/commit/8c715bf8eae2d6295493a70e4ac1aea69cdd314b 
+更早期 2026-07-15 更新： https://github.com/ZihanXu-kl1/rosvhf/commit/247b1e0b2c2877c4d332b78c67aa3bf470745928 
+各地运营商 IPTV 直播源： https://github.com/hatfielddeborah52/lvguzl/commit/0517f61ed13b17533ed99308c64f840821f617e9 
+全国可用直播源： https://github.com/JingyiChen-ij1/xfuhcd/commit/a8ae48c54d75092267bc2f1e3a698691e6a88e52 
+2026-07-15 更新： https://github.com/mcdowelldaniel4/ztlncb/commit/125a8921d241cf40e02abe3422982a2d745b92d3 
+赞助者： https://github.com/holmesanna67/dyjqnt/commit/a3c80343fd25ef4a7dcc98b7b53e2cf6d4a35cf3 
+文章： https://github.com/josephtimothy9395/ogtvue/commit/3ecbdcecc07631be708fddcccc511ce5b1b1dfac 
+视频教程： https://github.com/woodbrianna0/cpuiwj/commit/e8e8bc4220c5787ad66355d5ebfc23ae20faa019 
+插件： https://github.com/XinyiSun-lm2/btuapw/commit/64a21fe4c7e5fd9e484b69950cf5c9f650cac0b8 
+工具： https://github.com/higginssara654/gexwcz/commit/90bbb159b62557d055fb15865444f48394e76fa1 
+URL： https://github.com/JingyiChen-ij1/xfuhcd/commit/01ee6952b4c6804d4290c56d9480dd28bb1fd37b 
+目录： https://github.com/holmesanna67/dyjqnt/commit/c17725fa859d7c3d2506ec461d3a56cc6508812b 
+喀麦隆直播电视频道： https://github.com/mcdowelldaniel4/ztlncb/commit/bec94d9f4d4446d326f643cad6ff1406a518a5e0 
+阿富汗直播电视频道： https://github.com/ZihanXu-kl1/rosvhf/commit/e2ed2984ae6ecadf3bd758839954a43a6abb32b9 
+海地的直播频道： https://github.com/woodbrianna0/cpuiwj/commit/311a77cead070149b1c9fd7b4ab9e52a03af5346 
+高棉直播和泰国电视，电影和电视剧： https://github.com/XinyiSun-lm2/btuapw/commit/e8d51f713b2298e1e56c09c71f916219805861e0 
+厄瓜多尔直播频道： https://github.com/hatfielddeborah52/lvguzl/commit/984145b2116021e1f19c3819b02bbdd7b0bd4a0d 
+玻利维亚直播频道： https://github.com/ZihanXu-kl1/rosvhf/commit/2437cb810bc316b0c3b87b1691808767f6003b0b 
+萨尔瓦多直播频道： https://github.com/woodbrianna0/cpuiwj/commit/7866c0372561d94cf9450f01c77e6c3b05ceafa1 
+危地马拉直播频道： https://github.com/josephtimothy9395/ogtvue/commit/4e4e9ce5cf04d3ecb9a00c2788e2261338f762c1 
+洪都拉斯直播频道： https://github.com/holmesanna67/dyjqnt/commit/1bfbd04bb4d62b7d435929bc1b313d0b0cb324bd 
+多米尼加共和国直播频道： https://github.com/XinyiSun-lm2/btuapw/commit/2afd2f53812ef4eb35de44eb5ffb46348cdcb6ac 
+哥斯达黎加直播频道： https://github.com/higginssara654/gexwcz/commit/511cfbf1153cb7618b74cb90aa5f84d1fe33cf40 
+来自世界各地的个电视频道和个摄像机： https://github.com/hatfielddeborah52/lvguzl/commit/11a26bffd6ec15e000d5c7566280e59fd3f28897 
+免费数据库： https://github.com/woodbrianna0/cpuiwj/commit/187013d9a1a53f2a92a28e12954f93bff4a14e41 
+公共链接到互联网上传输的个线性电视频道和个线性无线电频道： https://github.com/josephtimothy9395/ogtvue/commit/4d3941280c734dbba8cd2b348448df779d8e8012 
+超过个国家地区的个高清频道和： https://github.com/ZihanXu-kl1/rosvhf/commit/a7575a7bc53728bf076cd05736932bc66fa7143d 
+超过个直播电视频道影视节目： https://github.com/XinyiSun-lm2/btuapw/commit/f493cabc9bac1c13d8a207f1cd64eba8d9ed3fcb 
+提供商列表： https://github.com/hatfielddeborah52/lvguzl/commit/bf0e25c9e8d2c790d35e46b10f816377cf3c6f92 
+提供者： https://github.com/holmesanna67/dyjqnt/commit/e0201e9f4f91a920cb7e435c933f29f8fda4fddc 
+客户端服务器媒体播放器： https://github.com/higginssara654/gexwcz/commit/ca0b6032c59edf9e68f7b405d9624a0b74020cc9 
+支持播放列表文件： https://github.com/woodbrianna0/cpuiwj/commit/84e24e6c9391f2cb97b4fa376279175f6cede9ba 
+启用投屏的应用程序，可让您将收藏的视频从移动设备流式传输到电视： https://github.com/ZihanXu-kl1/rosvhf/commit/ba8635c9cf0ba980876bd6a56531bf3b4ae86a72 
+完整的用户定义的高级 IPTV 解决方案，用于实时和非实时电视流： https://github.com/hatfielddeborah52/lvguzl/commit/f2b0ed42176a469878c3f3a7242732f7f1f99293 
+点 即可： https://github.com/XinyiSun-lm2/btuapw/commit/b048cdfe97cfcacbdbb0a44c52d86e9254fc09df 
+第三行不用管： https://github.com/josephtimothy9395/ogtvue/commit/58516dbe20a1857020ff9601909b7d21bce1a2f9 
+第二行输入上面给你的地址： https://github.com/holmesanna67/dyjqnt/commit/bbba3dc94c0d56eaa4bfa7b1cd79f35733b9d408 
+第一行随意输入一个名字： https://github.com/higginssara654/gexwcz/commit/a82ce064d348957963804cf00b6cb7ad0a8b4be1 
+选择 远程播放列表文件： https://github.com/ZihanXu-kl1/rosvhf/commit/1549c7d9fb8d7b377319308d496e64f96fb3ee15 
+打开 点击 号： https://github.com/woodbrianna0/cpuiwj/commit/398303b1423b4b5b32578892543a9c7ff5872c08 
+食用指南： https://github.com/hatfielddeborah52/lvguzl/commit/7f10a58dcde0cdd44f0a64a6404f20fc10b96c4c 
+适用于 macOS 的现代媒体播放器： https://github.com/josephtimothy9395/ogtvue/commit/b96f07541fdff4e926d26e226f3f61214d00a6f0 
+直播电视和广播客户端插件： https://github.com/higginssara654/gexwcz/commit/cc9abbe377b5dbbb85952d165902cdf85c6361e7 
+具有库支持的免费跨平台媒体播放器： https://github.com/ZihanXu-kl1/rosvhf/commit/23ac31ea07b7b75532eca8a68ecaf8a10ba53eec 
+免费开放源代码的便携式跨平台媒体播放器： https://github.com/holmesanna67/dyjqnt/commit/c3d5edb18af36a638d39e4d1cf56a96831580421 
+支持 IPTV 流的应用程序： https://github.com/woodbrianna0/cpuiwj/commit/727e36e855eab7c05df96b94676d2cd843f66305 
+工具： https://github.com/XinyiSun-lm2/btuapw/commit/7e7b2fc0721c7b1b10ade2964b737e0e76bc658e 
+轮播华数求索爱奇艺 2026-07-15 更新： https://github.com/hatfielddeborah52/lvguzl/commit/b960e3bc7dee07f3a1f455727778e15cfb91b071 
+台湾、香港、澳门、韩国、日本、美国、加拿大、英国、意大利、德国、法国、西班牙、南美等国： https://github.com/josephtimothy9395/ogtvue/commit/1a78792fd473b2d6ea9748ddcace3f05b226de9a 
+台湾香港海外直播源 2026-07-15 更新： https://github.com/woodbrianna0/cpuiwj/commit/ec03ba43d61947db988f4aecc47b9a7208a12b6a 
+各大卫视、上千个地方台： https://github.com/ZihanXu-kl1/rosvhf/commit/19583859a4c9f3853fabdc9b58747116fcd88ada 
+国内电视台直播源 2026-07-15 更新： https://github.com/holmesanna67/dyjqnt/commit/bf2d33841dc8221a54edbbe8975263110ca60623 
+卫视腾讯云： https://github.com/higginssara654/gexwcz/commit/4cff02a4475bbbdb2681d62d5d7de0eafbe8cd1d 
+卫视平顶山学院教育网： https://github.com/XinyiSun-lm2/btuapw/commit/c737bfbd4532e3f08431d878f0f2b2385d1bbfa1 
+卫视天途云： https://github.com/woodbrianna0/cpuiwj/commit/281be5def11bb428d006ad36918feca685324921 
+卫视地方台安徽农大： https://github.com/hatfielddeborah52/lvguzl/commit/47322ccd8a812b81068728aacc308004f61987c2 
+卫视北京凤凰探索星空卫视北京邮电大学校园网： https://github.com/josephtimothy9395/ogtvue/commit/bee80886266fb220c3ced2f1096fb2b64574d491 
+央视卫视广西移动直播源： https://github.com/ZihanXu-kl1/rosvhf/commit/82633d6ad2f4c375a278ac9a006c083c3cfce118 
+付费频道直播源： https://github.com/holmesanna67/dyjqnt/commit/9449a606e411c078dcc4c53df75f6e925beb562c 
+国家直播源多个全部有效： https://github.com/higginssara654/gexwcz/commit/dd70ba9e2ec0de07e3a6e2d7a3fc9fcd8e550494 
+直播源全部有效： https://github.com/josephtimothy9395/ogtvue/commit/8240f3837a680b7085f3d7aa6ac2970ca426ca35 
+全部有效： https://github.com/woodbrianna0/cpuiwj/commit/1ac25c74395781534a95dab88364b96bcaf7eb91 
+直播源全部有效老电脑别用： https://github.com/XinyiSun-lm2/btuapw/commit/9574c7beac5fbdfe1fe09ebbb5ae07948a5de40c 
+影视剧场全部流畅： https://github.com/hatfielddeborah52/lvguzl/commit/f1727385f5dcfe01643161f09719dd5b61051d10 
+全部可用： https://github.com/ZihanXu-kl1/rosvhf/commit/4ecf0f9a50cd05a656bd7ed6cd030c0339014b2c 
+我的播放源： https://github.com/holmesanna67/dyjqnt/commit/09b7898ea3ab893c0eb43b32e3392b52ab7c8ba3 
+其他直播源 不确定有效性： https://github.com/ZihanXu-kl1/rosvhf/commit/c35f42e76be87708a948ae03049de8568f696608 
+新疆电信组播 IPTV 直播源下载地址： https://github.com/ZihanXu-kl1/rosvhf/commit/dca946bc9d313e9f872ce0aedcce42ac4a169db8 
+新疆 IPTV 直播源： https://github.com/woodbrianna0/cpuiwj/commit/0b195c4bc60c203d3d4f5d88ff9c6512254c0a53 
+内蒙古联通 udp 组播下载地址： https://github.com/higginssara654/gexwcz/commit/e9f83a1cdd8649f80d22e584cac49f244f848ae9 
+内蒙古联通 IPTV 直播源下载地址： https://github.com/XinyiSun-lm2/btuapw/commit/8e0e6d24b412470aaf6678876c8fcf1c32ac1e88 
+内蒙古电信组播 IPTV 直播源下载地址： https://github.com/higginssara654/gexwcz/commit/cf96fed244c4b084ef657d628e9e2b9783da2356 
+内蒙古电信 IPTV 直播源下载地址： https://github.com/holmesanna67/dyjqnt/commit/ca466d843181b3e9d363182273ee4f2c4255a41b 
+内蒙古 IPTV 直播源： https://github.com/woodbrianna0/cpuiwj/commit/c04c718f84b56ad121025548c581cf44853b61f7 
+黑龙江联通组播 IPTV 直播源下载地址： https://github.com/ZihanXu-kl1/rosvhf/commit/13ab97608f5fe75efa5e1ed3d21f2111d24b0d32 
+黑龙江移动 3IPTV 直播源下载地址： https://github.com/XinyiSun-lm2/btuapw/commit/375d3842a2289507bab0658697da26bfd7c13888 
+黑龙江移动 2IPTV 直播源下载地址： https://github.com/higginssara654/gexwcz/commit/fb2a532a0fec9e38a4fb1f25f255487daa05cb57 
+黑龙江移动 IPTV 直播源下载地址： https://github.com/woodbrianna0/cpuiwj/commit/053e7930edab2a865606f53bba3cbb760a309df0 
+黑龙江 IPTV 直播源： https://github.com/holmesanna67/dyjqnt/commit/a71fcecc2849657f791783aa6415332a80fb2775 
+吉林电信组播 IPTV 直播源下载地址： https://github.com/XinyiSun-lm2/btuapw/commit/51bc7970ed71dba013055e5128e49307e0e5b422 
+吉林 IPTV 直播源： https://github.com/woodbrianna0/cpuiwj/commit/3b5dea57ea49fcc386b52132286ebf836dc18f89 
+辽宁移动直播源下载地址： https://github.com/ZihanXu-kl1/rosvhf/commit/f90a39afca967f1750373e79daafa73f183f9656 
+辽宁电信 IPTV 直播源下载地址： https://github.com/josephtimothy9395/ogtvue/commit/16385e7e4e5a2e4a0b491900473d688fc7775b48 
+辽宁大连联通 IPTV 组播直播源下载地址： https://github.com/hatfielddeborah52/lvguzl/commit/d0161a1288a3eb2960ef8b819fbde355d6069a60 
+辽宁联通组播 IPTV 直播源下载地址： https://github.com/holmesanna67/dyjqnt/commit/0dfc8277580ed30653ac5bf144f0d771b768676f 
+辽宁联通 IPTV 直播源下载地址： https://github.com/higginssara654/gexwcz/commit/eb6243a1f89a4092a28cc1fc943f4c3693bd866b 
+辽宁 IPTV 直播源： https://github.com/woodbrianna0/cpuiwj/commit/cdf3c943488ed7398f781803ef53d0c9894222e4 
+浙江电信组播 IPTV 组播直播源下载地址： https://github.com/ZihanXu-kl1/rosvhf/commit/43df8f503c5daee31fb57f05991908999f538184 
+浙江电信 IPTV 组播直播源下载地址： https://github.com/holmesanna67/dyjqnt/commit/d26ae0f38f4bfe6915e89ab0166a813fc0cdffc7 
+浙江联通 IPTV 直播源下载地址： https://github.com/higginssara654/gexwcz/commit/d5772ba9e4e1cbf1c65866290046fa5831e274d2 
+浙江移动 IPTV 直播源下载地址： https://github.com/woodbrianna0/cpuiwj/commit/41fef80a49e40776ed5c4539eb17eab5259b789b 
+浙江 IPTV 直播源： https://github.com/holmesanna67/dyjqnt/commit/398d9ce2ef92099406b9df6b85ce827f6b9221ef 
+江西联通 IPTV 直播源下载地址： https://github.com/woodbrianna0/cpuiwj/commit/2d6cdfdb12668249d84c30f45965768ca3fc1c48 
+江西电信组播 IPTV 直播源下载地址： https://github.com/holmesanna67/dyjqnt/commit/2b68f4883ebd1afec141aa2da01231028f0ccd85 
+江西电信 IPTV 直播源下载地址： https://github.com/woodbrianna0/cpuiwj/commit/d3d0058ca0edd8dfd401c55da75ba733ae6f6dd0 
+江西移动 IPTV 直播源下载地址： https://github.com/woodbrianna0/cpuiwj/commit/829eed613807edf816934a57383d841abc0bc874 
+江西 IPTV 直播源： https://github.com/holmesanna67/dyjqnt/commit/ae6bac47f133d08162d0b055f577d961e23bb15b 
+江苏移动 IPTV 直播源下载地址： https://github.com/holmesanna67/dyjqnt/commit/b37580e10c23df4e06e908d7763f6b77ccb0c58c 
+江苏电信组播 IPTV 直播源下载地址： https://github.com/woodbrianna0/cpuiwj/commit/2fba9987d11372c3cbd3a0ce689173a1d84098c8 
+江苏泰州电信 IPTV 直播源下载地址： https://github.com/holmesanna67/dyjqnt/commit/05a2799e54289d7ecfd04ad5f566cd640ae42951 
+江苏南京电信 2IPTV 直播源下载地址： https://github.com/woodbrianna0/cpuiwj/commit/975bee148179a3b12a02dcde2ede706a8f42f2c5 
+江苏南京电信 IPTV 直播源下载地址： https://github.com/XinyiSun-lm2/btuapw/commit/a19c72b990604b8a0d82a42d21a85433ff6e7158 
+江苏电信 IPTV 直播源下载地址： https://github.com/mcdowelldaniel4/ztlncb/commit/9179f8711e79d7b5e77c4e7d67d5711b7ff14981 
+江苏 IPTV 直播源： https://github.com/ZihanXu-kl1/rosvhf/commit/a246725a915b57b8bc4677d22fbb9eddaa364aac 
+安徽广电 IPTV 直播源下载地址： https://github.com/higginssara654/gexwcz/commit/4805fc241029689524ea01a956cfcf2ed6ae99c7 
+海南电信组播 IPTV 直播源下载地址： https://github.com/hatfielddeborah52/lvguzl/commit/5c20f12a42e73fc9a692b0fe64a29dfc72980e3b 
+海南联通组播 IPTV 直播源下载地址： https://github.com/mcdowelldaniel4/ztlncb/commit/008b39d1610780f2dd0db6bc21273837314169a1 
+提供所有优质的英国，爱尔兰，德国，土耳其，阿拉伯语，美国和加拿大频道
+超过个俄罗斯频道和天的节目存档
+起初这里仅收录美加墨世界杯直播地址，配合赛程比分对阵供调用
+后来疫情来了，这里又增加了世界各国公共频道，及国内部分区域 IPTV，希望带给隔离中的些许心理依托
+然后转眼三年了，还这样子，且没有转好的迹象 相信这段浓墨重彩的一笔世人铭记
+眼下 美加墨世界杯
+再次祝愿所有人百毒不侵 希望动态清零早日过去，请大家务必坚信明天是崭新的
+这个项目的存在要感谢所有贡献者
+请给我们一个 点赞支持我们 谢谢
+并感谢所有支持者2026年07月18日11时38分56秒
+来源：https://github.com/higginssara654/gexwcz/commit/8abd60849926602ec572be5b8ba9f9b629d05caf 
+来源：https://github.com/JingyiChen-ij1/xfuhcd/commit/3f7a778ce9bf28d686969f1e76f00a1283864de7 
+来源：https://github.com/ZihanXu-kl1/rosvhf/commit/72b274ea559aa3a14e7a604ed4ffc2f9bfc57dbb 
+来源：wefhsdhcvWESDCSDwefsdf.cn
+2026年07月18日，11时38分56秒
